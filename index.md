@@ -42,7 +42,7 @@ Expert guides for car owners, wholesalers, and distributors. Written by a 19-yea
 We manufacture OEM protective covers: car covers, motorcycle covers, boat covers, furniture covers, surfboard bags, pet seat covers, and custom sewing products.
 
 - **Alibaba Store:** [autobean.en.alibaba.com](https://autobean.en.alibaba.com)
-- **Website:** [jkcovering.com](https://www.jkcovering.com)
+- **Website:** [jkcovers.com](https://www.jkcovers.com)
 - **Email:** info@jkcorp.cn
 
 *MOQ from 50 pcs | Custom logo, size, color, packaging | Sample orders welcome*
