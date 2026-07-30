@@ -33,6 +33,34 @@ Expert guides for car owners, wholesalers, and distributors. Written by a 19-yea
 - [Winter Car Protection Guide](11-winter-car-cover-guide.md) — Snow, ice, and road salt defense
 - [Summer Car Protection Guide](12-summer-car-cover-guide.md) — Sun damage and heat prevention
 
+## Vehicle-Specific Guides
+
+- [Best Car Cover for SUVs](13-car-cover-for-suv.md) — What to look for and why size matters
+- [Car Covers for Classic Cars](14-car-cover-for-classic-cars.md) — Protecting your investment the right way
+- [Motorcycle Cover Buying Guide](22-motorcycle-cover-guide.md) — Protect your bike from weather and theft
+- [Ebike Battery Cover Guide](21-ebike-battery-cover-guide.md) — Protect your most expensive component
+- [Fleet Car Covers](23-fleet-car-covers.md) — Why businesses should buy in bulk
+
+## Comparison & Selection
+
+- [Indoor vs Outdoor Car Covers](15-indoor-vs-outdoor-car-cover.md) — They're not the same thing
+- [OEM vs Retail Car Covers](17-oem-vs-retail-car-cover.md) — Why buying direct saves you 40-60%
+
+## Business & Manufacturing
+
+- [Custom Logo Car Covers](18-custom-logo-car-covers.md) — Why every dealership and shop should offer them
+- [How Car Covers Are Made](25-manufacturing-process.md) — Inside a professional manufacturing facility
+
+## Maintenance & Care
+
+- [How to Clean and Maintain Your Car Cover](16-car-cover-maintenance.md) — Extend its life to 3+ years
+- [How to Properly Store Your Car Cover](19-car-cover-storage-guide.md) — When not in use
+
+## Environment & Planning
+
+- [The Environmental Case for Car Covers](20-car-cover-environmental-impact.md) — Less washing, longer paint life
+- [Seasonal Car Cover Guide](24-seasonal-car-cover-guide.md) — When to switch and what to look for
+
 ---
 
 ## About JK Corp
