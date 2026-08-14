@@ -1,6 +1,13 @@
+---
+title: Car Cover Guides & Resources
+layout: default
+---
+
 # JK Corp Car Cover Knowledge Base
 
 Expert guides for car owners, wholesalers, and distributors. Written by a 19-year OEM manufacturer.
+
+---
 
 ## Size & Fit
 
@@ -86,6 +93,42 @@ Expert guides for car owners, wholesalers, and distributors. Written by a 19-yea
 - [Outdoor Furniture Cover Guide](48-furniture-cover-guide.md)
 - [BBQ Grill Cover Guide](49-grill-cover-guide.md)
 - [Commercial Seat Covers](60-restaurant-seat-cover.md)
+
+## Outdoor Living Protection
+
+- [Outdoor Furniture Cover for Winter — Full Guide](178-outdoor-furniture-cover-winter.md)
+- [Grill Cover Material Comparison](179-grill-cover-material-comparison.md)
+- [Fire Pit Cover Buying Guide](180-fire-pit-cover-guide.md)
+- [Patio Table Cover Sizing](181-patio-table-cover-sizing.md)
+- [Outdoor Cushion Storage — Covers vs Indoor](182-outdoor-cushion-storage-cover.md)
+- [Gas Grill vs Charcoal Grill Cover Needs](183-gas-charcoal-grill-cover.md)
+- [Outdoor Sofa Cover Guide](184-outdoor-sofa-cover-guide.md)
+- [Hot Tub Cover Guide — Insulated Covers](185-hot-tub-cover-guide.md)
+- [Air Conditioner Outdoor Unit Cover](186-ac-unit-cover-guide.md)
+- [Outdoor Water Heater Cover](187-water-heater-cover-outdoor.md)
+- [Swing and Hammock Cover](188-swing-hammock-cover.md)
+- [Bicycle Outdoor Cover Guide](189-bicycle-outdoor-cover.md)
+- [Golf Cart Cover Buying Guide](190-golf-cart-cover-guide.md)
+- [ATV Cover Guide](191-atv-cover-guide.md)
+- [Snow Blower Cover](192-snow-blower-cover.md)
+
+## B2B Procurement Guides
+
+- [Alibaba Trade Assurance for Cover Buyers](193-alibaba-trade-assurance-covers.md)
+- [QC Inspection for Protective Covers](194-cover-qc-inspection.md)
+- [Understanding FOB vs CIF for Cover Imports](195-fob-vs-cif-cover-imports.md)
+- [Sample Orders for Covers — How to Evaluate](196-cover-sample-order-evaluation.md)
+- [Custom Cover Packaging Options](197-custom-cover-packaging.md)
+- [Cover Factory Audit Checklist](198-cover-factory-audit-checklist.md)
+- [MOQ Negotiation for Cover Factories](199-moq-negotiation-cover-factory.md)
+- [Lead Time Management for OEM Covers](200-oem-cover-lead-time.md)
+- [OEM Cover Quality Certificates Guide](201-cover-quality-certificates.md)
+- [Private Label Car Cover — Starting a Brand](202-private-label-car-cover-brand.md)
+- [Cover Dropshipping — Is It Viable](203-cover-dropshipping-viability.md)
+- [Cover Wholesale Pricing Strategy](204-cover-wholesale-pricing.md)
+- [Container Shipping for Covers — How Many Fit](205-cover-container-shipping.md)
+- [Cover Return Rate Reduction](206-cover-return-rate-reduction.md)
+- [Cross-Border E-Commerce Covers on Amazon](207-amazon-car-cover-fba.md)
 
 ---
 
