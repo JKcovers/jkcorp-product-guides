@@ -35,4 +35,4 @@ Car covers add an extra step for potential thieves. A covered car is anonymous â
 - **Mirror pockets**: Eliminates loose fabric at the widest point
 - **Storage bag included**: For keeping the cover clean when not in use
 
-For OEM all-weather car covers with multi-layer construction, 99% UV rejection, and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM all-weather car covers with multi-layer construction, 99% UV rejection, and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

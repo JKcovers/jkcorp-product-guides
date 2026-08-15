@@ -17,4 +17,4 @@ Measure your grill's width (with side shelves down), depth, and height. Add 2-3 
 - **Handles:** For one-person removal
 - **Dark color:** Hides grease stains and weathering
 
-For OEM grill covers with waterproof Oxford construction at wholesale prices, visit autobean.en.alibaba.com.
+For OEM grill covers with waterproof Oxford construction at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

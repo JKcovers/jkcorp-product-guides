@@ -24,4 +24,4 @@ Denier measures individual fiber thickness. 210D is lightweight, 420D is mid-wei
 
 A 600D cover for an SUV weighs 8-12 lbs — fine for set-and-forget storage. A 210D cover for a sedan weighs 3-5 lbs — manageable for daily on/off. Choose weight that matches your usage frequency.
 
-For OEM car covers in all weights and materials with wholesale pricing, visit autobean.en.alibaba.com.
+For OEM car covers in all weights and materials with wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

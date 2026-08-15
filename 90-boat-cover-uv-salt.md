@@ -43,4 +43,4 @@ Quality boat cover fabric passes:
 - Double-stitched, reinforced seams
 - Corrosion-resistant hardware (never plain steel snaps)
 
-For OEM boat covers in solution-dyed marine polyester, visit autobean.en.alibaba.com.
+For OEM boat covers in solution-dyed marine polyester, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

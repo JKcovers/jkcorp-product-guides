@@ -28,4 +28,4 @@ Lightweight and highly packable. Nylon covers fold down to the size of a water b
 | Polyester + PVC | ✅ 2000mm | ⚠️ | 18-24 months | Covered parking |
 | Nylon | ⚠️ | ✅ | 12-18 months | Touring, travel |
 
-For OEM motorcycle covers in Oxford, polyester, and nylon with wholesale pricing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers in Oxford, polyester, and nylon with wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

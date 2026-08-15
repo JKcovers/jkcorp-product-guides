@@ -25,4 +25,4 @@ A battery cover provides thermal insulation that moderates temperature swings. W
 - Never charge a battery that's been sitting in freezing temperatures — let it warm to room temperature first (2-3 hours)
 - Expect 20-30% less range in winter — plan shorter trips
 
-For OEM neoprene and insulated ebike battery covers at wholesale prices, visit autobean.en.alibaba.com.
+For OEM neoprene and insulated ebike battery covers at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

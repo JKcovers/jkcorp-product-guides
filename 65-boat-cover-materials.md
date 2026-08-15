@@ -45,4 +45,4 @@ A polyester base fabric with a PVC or polyurethane coating applied to one side.
 | Budget priority | Coated polyester |
 | Saltwater environments | Solution-dyed (always) |
 
-For OEM boat covers in solution-dyed polyester with custom sizing, visit autobean.en.alibaba.com.
+For OEM boat covers in solution-dyed polyester with custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

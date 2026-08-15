@@ -17,4 +17,4 @@ Standard outdoor covers prioritize waterproofing, which often means less breatha
 
 Dust settled on paint absorbs more heat than clean paint, accelerating clear coat oxidation. A dustproof cover breaks this cycle by keeping dust off entirely. Less dust = cooler surface temperatures = less UV damage.
 
-For OEM dustproof car covers with 99% UV rejection and desert-tested construction, visit autobean.en.alibaba.com.
+For OEM dustproof car covers with 99% UV rejection and desert-tested construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

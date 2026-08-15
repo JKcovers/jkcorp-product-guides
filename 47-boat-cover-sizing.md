@@ -23,4 +23,4 @@ Add 6-12 inches to your measurements for: outboard motors, swim platforms, bow r
 
 Marine-grade polyester with solution-dyed UV treatment lasts 5-7 years outdoors. This is the standard for serious boat protection. Acrylic blends offer better breathability for high-humidity storage. PVC-coated polyester is the heavy-duty option for extreme weather.
 
-For OEM boat covers with marine-grade materials and custom sizing, visit autobean.en.alibaba.com.
+For OEM boat covers with marine-grade materials and custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

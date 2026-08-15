@@ -26,4 +26,4 @@ For winter storage, the cover does two jobs: keeps dust off and prevents condens
 
 Even covered, check the bike monthly: look for moisture under the cover, verify the battery maintainer is working, and confirm no pests have nested in the exhaust.
 
-For OEM winter motorcycle covers with fleece lining and waterproof construction, visit autobean.en.alibaba.com.
+For OEM winter motorcycle covers with fleece lining and waterproof construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

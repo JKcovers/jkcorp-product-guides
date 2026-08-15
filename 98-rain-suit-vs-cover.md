@@ -48,4 +48,4 @@ Some riders skip the cover thinking "I have rain gear, the bike can get wet too.
 
 If you ride in rain AND park outdoors, you need both. Rain suit = riding gear. Bike cover = storage gear. They're complementary, not competing.
 
-For OEM waterproof motorcycle covers for outdoor parking, visit autobean.en.alibaba.com.
+For OEM waterproof motorcycle covers for outdoor parking, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

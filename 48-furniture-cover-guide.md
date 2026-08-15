@@ -19,4 +19,4 @@ Measure the total width, depth, and height of your furniture set. Add 4-6 inches
 - **Handles:** For easy removal by one person
 - **Dark colors:** Hide dirt and mildew stains better than light colors
 
-For OEM outdoor furniture covers with waterproof construction and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM outdoor furniture covers with waterproof construction and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -20,4 +20,4 @@ This guide hub covers everything: material comparisons (Oxford vs PEVA vs polyes
 - 300+ vehicle templates, 323 custom colors
 - MOQ from 50 pieces, sample orders available
 
-Get a quote at autobean.en.alibaba.com or visit our full guide library at jkcovers.github.io/jkcorp-product-guides.
+Get a quote at autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com, or visit our full guide library at jkcovers.github.io/jkcorp-product-guides.

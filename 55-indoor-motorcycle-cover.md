@@ -23,4 +23,4 @@ A garage-protected bike doesn't face rain, UV, or wind. The threats are more sub
 
 Skip the waterproof membrane, UV coating, and heavy-duty straps. An indoor cover costs $15-30 versus $40-80 for outdoor. Spend the savings on a better indoor material (fleece over polyester).
 
-For OEM indoor motorcycle covers with fleece lining at wholesale prices, visit autobean.en.alibaba.com.
+For OEM indoor motorcycle covers with fleece lining at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

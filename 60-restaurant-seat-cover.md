@@ -19,4 +19,4 @@ Commercial seating takes abuse that residential furniture never sees. Restaurant
 
 OEM manufacturers can produce covers to your exact seat dimensions with custom colors, patterns, and logo embroidery. MOQ for commercial orders is typically 100-200 pieces per design.
 
-For OEM commercial seat covers with fire-retardant options and bulk pricing, visit autobean.en.alibaba.com.
+For OEM commercial seat covers with fire-retardant options and bulk pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

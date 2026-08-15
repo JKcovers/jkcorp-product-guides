@@ -20,4 +20,4 @@ Paint softens above 140°F (60°C). A cover sitting in summer sun traps heat bet
 - **Ask for the GSM:** Quality fleece is 150+ gsm. Anything under 100 gsm is likely thin polyester sprayed to feel soft.
 - **Check the seam construction:** Lining seams should be flat or covered — exposed seams are pressure points that can mark paint.
 
-For OEM car covers with 150+ gsm fleece inner linings at wholesale prices, visit autobean.en.alibaba.com.
+For OEM car covers with 150+ gsm fleece inner linings at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

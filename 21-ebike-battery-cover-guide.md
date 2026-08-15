@@ -30,4 +30,4 @@ Measure your battery's length, width, and height. Most ebike batteries fall into
 - Rear rack batteries: 16-20 inches long, 4-5 inches thick
 - Dual battery systems: Need two covers or one extra-large
 
-For OEM ebike battery covers with waterproof construction and custom sizing, visit autobean.en.alibaba.com.
+For OEM ebike battery covers with waterproof construction and custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

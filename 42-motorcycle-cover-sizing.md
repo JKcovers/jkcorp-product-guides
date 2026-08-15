@@ -23,4 +23,4 @@ Do you have a top case, saddlebags, tall windshield, or luggage rack? Each adds 
 
 When in doubt, size up. A slightly long cover can be cinched with the belly strap. A too-short cover leaves your front tire, fork, and headlight exposed.
 
-For OEM motorcycle covers in all sizes with custom sizing available, visit autobean.en.alibaba.com.
+For OEM motorcycle covers in all sizes with custom sizing available, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

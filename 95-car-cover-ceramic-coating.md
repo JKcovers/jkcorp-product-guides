@@ -54,4 +54,4 @@ A physical barrier between your paint and the environment.
 3. The cover protects the coating from UV degradation — extending the coating's life
 4. When the cover is off, the coating keeps the car glossy and easy to clean
 
-For OEM fleece-lined car covers that protect your ceramic coating, visit autobean.en.alibaba.com.
+For OEM fleece-lined car covers that protect your ceramic coating, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

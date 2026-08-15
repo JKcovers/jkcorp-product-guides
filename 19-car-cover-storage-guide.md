@@ -38,4 +38,4 @@ If you use your cover only in winter or only in summer, give it extra care durin
 - Add a silica gel packet to the storage bag to absorb any residual moisture
 - Check the cover every 2-3 months during storage for any signs of pests or moisture
 
-For OEM car covers with premium storage bags included, visit autobean.en.alibaba.com.
+For OEM car covers with premium storage bags included, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

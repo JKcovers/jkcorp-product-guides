@@ -49,4 +49,4 @@ For indoor use only: you can save money with a lighter cover. Indoor cars don't 
 
 For year-round outdoor parking in any climate with rain, snow, or strong sun: multi-layer is the only sensible choice. The extra upfront cost pays for itself in durability and paint protection.
 
-For OEM multi-layer car covers with 4-7 layer construction, 99% UV rejection, and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM multi-layer car covers with 4-7 layer construction, 99% UV rejection, and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

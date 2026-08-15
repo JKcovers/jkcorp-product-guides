@@ -31,4 +31,4 @@ A quality multi-layer outdoor cover handles the big three — rain, UV, and dust
 2. Use an indoor cover even in the garage — it prevents dust, scratches, and condensation
 3. If the bike must sit outside, use a waterproof outdoor cover with a belly strap and lock holes
 
-For OEM motorcycle covers for both indoor and outdoor use, visit autobean.en.alibaba.com.
+For OEM motorcycle covers for both indoor and outdoor use, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

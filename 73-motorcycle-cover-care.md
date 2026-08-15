@@ -32,4 +32,4 @@ For fleece-lined or heat-sensitive covers:
 - Store in its carry bag
 - If storing for the season, add a silica gel packet to absorb residual moisture
 
-For OEM motorcycle covers with machine-washable construction and storage bags, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with machine-washable construction and storage bags, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

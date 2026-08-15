@@ -19,4 +19,4 @@ A cover labeled "waterproof" with no hydrostatic head rating is unverified. The 
 
 PU (polyurethane) coating is the most common. It adds 1000-2000mm to the fabric's natural resistance. PVC coating is heavier but adds 2000-3000mm. The best covers combine a dense base fabric (420D+ Oxford) with a PU or PVC coating.
 
-For OEM car covers with verified hydrostatic head ratings and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM car covers with verified hydrostatic head ratings and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -40,4 +40,4 @@ If the cover is wet when you remove it (morning dew, rain), drape it over a rail
 - Use the mirror pockets as grip points when positioning the cover
 - If birds frequently target your car, rinse droppings off the cover with a hose between washes
 
-For OEM multi-layer car covers with machine-washable construction and storage bags included, visit autobean.en.alibaba.com.
+For OEM multi-layer car covers with machine-washable construction and storage bags included, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

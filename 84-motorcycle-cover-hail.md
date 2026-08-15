@@ -31,4 +31,4 @@ For severe hail warnings:
 2. Use the thickest padded cover you own
 3. In extreme cases, add a moving blanket or foam pad UNDER the cover over the tank and seat
 
-For OEM padded motorcycle covers with multi-layer hail protection, visit autobean.en.alibaba.com.
+For OEM padded motorcycle covers with multi-layer hail protection, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

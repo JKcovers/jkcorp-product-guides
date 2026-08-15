@@ -46,4 +46,4 @@ Height = gunwale height + 4-6" (for clearance)
 
 Universal covers fit boats within a size range and are cheaper. Custom covers are made to your exact measurements — the right choice when you have a T-top, tower, or unusual hull shape.
 
-For OEM custom boat covers with marine-grade materials, visit autobean.en.alibaba.com.
+For OEM custom boat covers with marine-grade materials, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

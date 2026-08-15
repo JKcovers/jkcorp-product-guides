@@ -29,4 +29,4 @@ Roof cargo faces the most brutal conditions on any trip: highway wind, rain at 7
 | Pets in cargo area | Waterproof-backed fabric with raised edges |
 | Heavy equipment | Heavy-duty rubber or plastic with anti-slip surface |
 
-For OEM luggage covers and cargo liners with waterproof construction at wholesale prices, visit autobean.en.alibaba.com.
+For OEM luggage covers and cargo liners with waterproof construction at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

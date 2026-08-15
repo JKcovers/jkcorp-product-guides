@@ -37,4 +37,4 @@ Here's what many car owners don't realize: the same factories that produce cover
 3. **Request a fabric sample.** Before ordering a semi-custom or custom cover, ask the manufacturer for a small fabric swatch so you can feel the material quality.
 4. **Look for ISO 9001 certification.** It's not perfect, but it's the minimum bar for quality manufacturing.
 
-Ready to find your perfect fit? Explore OEM semi-custom car covers at wholesale prices at autobean.en.alibaba.com.
+Ready to find your perfect fit? Explore OEM semi-custom car covers at wholesale prices at autobean.en.alibaba.com, or explore our websites at www.jkcovers.com and www.customfitprotection.com.

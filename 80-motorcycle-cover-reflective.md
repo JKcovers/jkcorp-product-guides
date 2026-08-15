@@ -26,4 +26,4 @@ Reflective tape works by bouncing headlight beams back toward the source. When a
 
 A parked bike with a reflective cover is visible at 200-300 feet. Without it, a dark bike on a dark street is often visible at under 50 feet — too late for a driver at 30 mph (stopping distance ~60 feet).
 
-For OEM motorcycle covers with certified reflective strips at wholesale prices, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with certified reflective strips at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

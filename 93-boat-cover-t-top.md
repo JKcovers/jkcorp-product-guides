@@ -40,4 +40,4 @@ A custom cover with shaped cutouts that fit around the T-top supports.
 
 Measure: gunwale-to-gunwale beam, centerline length, T-top height above gunwale, and the footprint of the hardtop. Custom manufacturers need all four.
 
-For OEM custom T-top boat covers with full enclosures, visit autobean.en.alibaba.com.
+For OEM custom T-top boat covers with full enclosures, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -27,4 +27,4 @@ A quality motorcycle cover is not an accessory — it's essential maintenance. R
 
 Bikes with tall windshields, top cases, or luggage racks should size up.
 
-For OEM motorcycle covers with heat-resistant panels and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with heat-resistant panels and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

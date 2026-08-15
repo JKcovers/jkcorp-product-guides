@@ -38,4 +38,4 @@ Thieves target bikes they can steal in under 3 minutes. Two layers push most bik
 
 Cover alone = deterrent. Cover + anchored lock = defense. Cover + anchored lock + disc lock + alarm = as close to theft-proof as street parking gets.
 
-For OEM motorcycle covers with reinforced lock holes and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with reinforced lock holes and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

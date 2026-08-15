@@ -18,4 +18,4 @@ If you have a bed-mounted toolbox, ladder rack, or headache rack, a standard cov
 
 Pickup covers are larger and heavier than car covers — a full-size truck cover can weigh 8-12 lbs. Look for covers with grab handles or a two-piece design for easier solo installation.
 
-For OEM pickup truck covers with custom sizing for toolboxes and racks, visit autobean.en.alibaba.com.
+For OEM pickup truck covers with custom sizing for toolboxes and racks, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

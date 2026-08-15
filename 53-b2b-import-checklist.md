@@ -21,4 +21,4 @@ Importing custom car covers from China can cut your per-unit cost by 40-60% comp
 - **Air freight:** 5-7 days, 3-5x the cost. Best for samples and urgent restocks.
 - **Door-to-door service:** Many Alibaba suppliers offer DDP (Delivered Duty Paid) pricing that includes customs clearance.
 
-For ISO 9001 certified OEM car covers with Trade Assurance and sample orders, visit autobean.en.alibaba.com.
+For ISO 9001 certified OEM car covers with Trade Assurance and sample orders, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

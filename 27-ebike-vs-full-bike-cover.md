@@ -26,4 +26,4 @@ A battery cover protects just the battery — the $300-800 component most vulner
 
 Many riders use both: a battery cover that stays on permanently (protecting the most vulnerable component 24/7), plus a full cover for overnight or rainy-day parking. Total investment: $25-45 for a dual-layer protection system.
 
-For OEM ebike covers — both full-bike and battery-specific — at wholesale prices, visit autobean.en.alibaba.com.
+For OEM ebike covers — both full-bike and battery-specific — at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

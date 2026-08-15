@@ -23,4 +23,4 @@ For bird droppings or sap, rinse the spot with a hose and gently rub with mild s
 
 Always store in the included storage bag. A crumpled cover on the garage floor collects dirt that scratches paint the next time you use it. If the cover is damp, drape it to dry completely before bagging.
 
-For OEM motorcycle covers with machine-washable construction and storage bags, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with machine-washable construction and storage bags, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

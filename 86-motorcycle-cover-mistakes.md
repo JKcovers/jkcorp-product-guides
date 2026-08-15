@@ -50,4 +50,4 @@ Most motorcycle cover problems come from the same five buying mistakes. Here's h
 - [ ] Belly strap + elastic hem
 - [ ] Reinforced lock holes
 
-For OEM motorcycle covers that check all five boxes, visit autobean.en.alibaba.com.
+For OEM motorcycle covers that check all five boxes, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

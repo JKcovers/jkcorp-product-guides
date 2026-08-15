@@ -94,6 +94,6 @@ For shops and distributors sourcing motorcycle covers:
 - **Certifications:** ISO 9001 minimum; REACH/RoHS for EU imports
 - **Heat panel spec:** Ask the factory to state the panel's heat rating in writing
 
-For OEM motorcycle covers with 420D/600D Oxford, heat-resistant panels, custom sizes (S-XXXL), and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with 420D/600D Oxford, heat-resistant panels, custom sizes (S-XXXL), and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
 
 *Originally published at [JK Corp Car Cover Guides](https://jkcovers.github.io/jkcorp-product-guides/)*

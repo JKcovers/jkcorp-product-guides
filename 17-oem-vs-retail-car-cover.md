@@ -56,4 +56,4 @@ The biggest barrier for individuals is MOQ (minimum order quantity). Most factor
 4. Ask for references from other buyers
 5. Check trade assurance coverage
 
-For ISO 9001 certified OEM car covers with custom branding and 19 years of experience, visit autobean.en.alibaba.com.
+For ISO 9001 certified OEM car covers with custom branding and 19 years of experience, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

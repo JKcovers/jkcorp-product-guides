@@ -45,4 +45,4 @@ When the boat goes into storage:
 - Mildew spots — treat with marine cleaner
 - Stiff, brittle fabric — replace; the material has fatigued
 
-For OEM marine-grade boat covers and care accessories, visit autobean.en.alibaba.com.
+For OEM marine-grade boat covers and care accessories, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

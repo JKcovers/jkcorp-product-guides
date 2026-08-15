@@ -29,4 +29,4 @@ A boat stored outdoors under a non-breathable cover experiences daily temperatur
 - Sealed covers without vents are fine for a few days, not months
 - Shrink wrap needs professionally installed vents for the same reason
 
-For OEM boat covers with breathable marine fabric and ventilation ports, visit autobean.en.alibaba.com.
+For OEM boat covers with breathable marine fabric and ventilation ports, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

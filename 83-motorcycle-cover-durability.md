@@ -48,4 +48,4 @@ Motorcycle covers look similar on a rack, but their material determines whether 
 - **Harsh winters or long-term parking:** 600D Oxford
 - **Riding in freezing temperatures:** Neoprene for insulation, or 420D/600D with fleece lining
 
-For OEM motorcycle covers in 420D and 600D Oxford with wholesale pricing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers in 420D and 600D Oxford with wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

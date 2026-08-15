@@ -43,4 +43,4 @@ A quality OEM multi-layer cover costs $15-25 wholesale with logo. Retail at $80-
 4. Offer as an add-on at vehicle delivery
 5. Display one on a showroom car so customers can see the quality
 
-For OEM custom logo car covers with silkscreen, embroidery, and custom packaging, visit autobean.en.alibaba.com.
+For OEM custom logo car covers with silkscreen, embroidery, and custom packaging, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

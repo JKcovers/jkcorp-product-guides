@@ -38,6 +38,6 @@ If you're sourcing ebike covers for your shop or brand:
 - **Certifications:** Look for ISO 9001 certification as a minimum quality standard. REACH and RoHS compliance are important for EU importers.
 - **Lead Time:** 15-25 days for standard orders, 25-35 days for fully customized designs.
 
-For OEM ebike battery covers with waterproof Oxford construction, custom sizing, and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM ebike battery covers with waterproof Oxford construction, custom sizing, and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
 
 *Originally published at [JK Corp Car Cover Guides](https://jkcovers.github.io/jkcorp-product-guides/)*

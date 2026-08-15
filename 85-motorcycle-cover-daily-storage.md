@@ -37,4 +37,4 @@ Best choice: 600D Oxford multi-layer or fleece-lined, full strap system. $25-45 
 
 Two covers cost $35-70 total at wholesale. One premium cover that tries to do both costs $35-50 and does neither job perfectly. For riders who ride weekly AND store seasonally, two covers is the smarter buy.
 
-For OEM motorcycle covers for both daily use and long-term storage, visit autobean.en.alibaba.com.
+For OEM motorcycle covers for both daily use and long-term storage, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

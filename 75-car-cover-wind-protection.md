@@ -23,4 +23,4 @@ At 20 mph, wind lifts the fabric and slaps it against the car body thousands of 
 - After installation, run a hand around the hem to check it's fully seated under the bumper
 - Re-tighten after a windy day — straps stretch slightly on first use
 
-For OEM car covers with 3+ strap wind systems and elastic hems at wholesale prices, visit autobean.en.alibaba.com.
+For OEM car covers with 3+ strap wind systems and elastic hems at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -39,4 +39,4 @@ PWC covers are sized by watercraft model and hull length:
 
 If you trailer your PWC, choose a trailering-specific cover or verify the storage cover has reinforced tie-downs. A storage cover flapping at 60 mph tears within one trip.
 
-For OEM PWC covers with UV-resistant construction at wholesale prices, visit autobean.en.alibaba.com.
+For OEM PWC covers with UV-resistant construction at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

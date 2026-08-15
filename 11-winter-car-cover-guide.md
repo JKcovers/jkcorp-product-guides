@@ -50,4 +50,4 @@ A multi-layer outdoor cover addresses all of these:
 - **Rubber floor mats**: Protect your carpet from salt and slush tracked in on your boots
 - **Battery maintainer**: If storing for weeks, a trickle charger prevents cold-weather battery drain
 
-For OEM multi-layer winter car covers with waterproof construction, fleece inner lining, and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM multi-layer winter car covers with waterproof construction, fleece inner lining, and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

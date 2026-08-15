@@ -52,4 +52,4 @@ This is a subtle but important point: thicker materials like multi-layer Oxford 
 
 If you're looking for wholesale pricing or OEM custom covers, Alibaba is a great place to start. Look for manufacturers with ISO 9001 certification and at least 5 years on the platform. Many suppliers offer semi-custom sizing based on your vehicle dimensions, and you can request fabric samples before placing a bulk order.
 
-For a reliable OEM manufacturer with 19 years of experience, visit our Alibaba store at autobean.en.alibaba.com.
+For a reliable OEM manufacturer with 19 years of experience, visit our Alibaba store at autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

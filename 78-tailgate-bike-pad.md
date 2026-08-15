@@ -27,4 +27,4 @@ A padded protector that drapes over the tailgate, protecting both the truck's pa
 
 Standard pads fit full-size and mid-size trucks (60-70 inch tailgates). Compact truck owners should measure and check for specific short-bed versions.
 
-For OEM tailgate bike pads with 600D Oxford construction and custom branding, visit autobean.en.alibaba.com.
+For OEM tailgate bike pads with 600D Oxford construction and custom branding, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

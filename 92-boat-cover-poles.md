@@ -35,4 +35,4 @@ Cover fabric should slope at least 10-15 degrees toward the gunwales. If any fla
 - **Foam blocks:** Quick DIY option for small boats
 - **PVC framing:** Custom DIY frames for unique hull shapes
 
-For OEM boat covers with zippered access ports and compatible pole kits, visit autobean.en.alibaba.com.
+For OEM boat covers with zippered access ports and compatible pole kits, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

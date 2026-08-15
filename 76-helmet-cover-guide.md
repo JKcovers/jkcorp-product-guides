@@ -26,4 +26,4 @@ A helmet is your most important — and most expensive — piece of riding gear.
 - **Breathable mesh:** Prevents condensation inside the cover.
 - **Durable material:** Oxford or PVC-coated fabric resists the same weather as your bike cover.
 
-For OEM helmet covers with waterproof construction and custom branding at wholesale prices, visit autobean.en.alibaba.com.
+For OEM helmet covers with waterproof construction and custom branding at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -26,4 +26,4 @@ SUVs have larger side mirrors than sedans. A cover without mirror pockets will h
 
 For SUV covers, prioritize: multi-layer construction for weight and wind resistance, mirror pockets, at least 3 under-body straps, and roof rack accommodation if needed. A quality SUV cover should last 2-3 years outdoors.
 
-For OEM SUV car covers with custom sizing for roof racks and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM SUV car covers with custom sizing for roof racks and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

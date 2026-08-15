@@ -18,4 +18,4 @@ Convertible tops are flatter than hardtops, making water pooling a real problem 
 
 Indoor storage is ideal for convertibles. If you must park outdoors, invest in a premium multi-layer cover with 99% UV rejection, 3000mm+ waterproof rating, and a breathable middle membrane.
 
-For OEM convertible car covers with soft fleece lining and custom sizing, visit autobean.en.alibaba.com.
+For OEM convertible car covers with soft fleece lining and custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -39,4 +39,4 @@ Fleet vehicles parked outdoors depreciate faster than covered vehicles in three 
 4. Schedule quarterly cover inspections and cleaning.
 5. Replace covers showing wear before they damage paint.
 
-For OEM fleet car covers with bulk pricing, custom branding, and ISO 9001 quality, visit autobean.en.alibaba.com.
+For OEM fleet car covers with bulk pricing, custom branding, and ISO 9001 quality, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

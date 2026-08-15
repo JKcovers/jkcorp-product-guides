@@ -69,4 +69,4 @@ This is a common question. The rule of thumb: **size up, not down.** A cover tha
 
 Most OEM manufacturers on Alibaba accept custom dimensions. Simply provide your vehicle's exact length, width, and height, and they'll produce a cover to your specifications. This is especially useful for vehicles with roof racks, spoilers, or non-standard bodywork.
 
-For OEM semi-custom car covers with 99% UV protection and multi-layer Oxford construction, visit autobean.en.alibaba.com.
+For OEM semi-custom car covers with 99% UV protection and multi-layer Oxford construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

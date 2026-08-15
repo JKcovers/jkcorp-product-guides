@@ -53,4 +53,4 @@ Most outdoor car covers are multi-layer, which changes the weight equation. A 4-
 - **Year-round outdoor (rain, sun, moderate snow)**: 420D multi-layer — the sweet spot for value and protection
 - **Extreme outdoor (heavy snow, hail, desert sun, coastal salt)**: 600D multi-layer with maximum UV coating
 
-For OEM multi-layer car covers in 210D, 420D, and 600D Oxford at wholesale prices, visit autobean.en.alibaba.com.
+For OEM multi-layer car covers in 210D, 420D, and 600D Oxford at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

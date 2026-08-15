@@ -40,4 +40,4 @@ If your car splits time between garage and driveway, get one good outdoor multi-
 | Outdoor long-term storage | Premium multi-layer, 3000mm+ waterproof |
 | Mixed indoor/outdoor | Outdoor multi-layer (one cover, both jobs) |
 
-For OEM indoor and outdoor car covers with wholesale pricing, visit autobean.en.alibaba.com.
+For OEM indoor and outdoor car covers with wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

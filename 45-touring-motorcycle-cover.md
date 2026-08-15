@@ -20,4 +20,4 @@ Nylon is the classic touring choice — lightest weight, smallest pack size, ade
 - Let the cover dry before packing if it rained overnight (drape over the bike for 10 minutes while you eat breakfast)
 - Carry a spare lightweight cover if touring in consistently wet weather
 
-For OEM touring motorcycle covers with heat-resistant panels and compact storage, visit autobean.en.alibaba.com.
+For OEM touring motorcycle covers with heat-resistant panels and compact storage, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

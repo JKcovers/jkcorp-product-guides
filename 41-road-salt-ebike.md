@@ -23,4 +23,4 @@ A waterproof battery cover creates a physical barrier between salt spray and you
 3. Apply dielectric grease to connectors before winter for extra protection
 4. Bring the battery indoors for charging — never charge a frozen battery
 
-For OEM waterproof ebike covers with sealed seams for salt protection, visit autobean.en.alibaba.com.
+For OEM waterproof ebike covers with sealed seams for salt protection, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

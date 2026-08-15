@@ -43,4 +43,4 @@ If storing two covers isn't practical, choose a premium all-weather multi-layer 
 
 Wash, fully dry, fold accordion-style, place in storage bag with silica gel packet, and store in a cool dry closet or garage cabinet — never in an attic or unheated shed.
 
-For OEM seasonal and all-weather car covers with wholesale pricing, visit autobean.en.alibaba.com.
+For OEM seasonal and all-weather car covers with wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

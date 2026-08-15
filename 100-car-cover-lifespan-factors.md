@@ -56,4 +56,4 @@ Same cover, good care:
 = 39 months — 30% longer than rated
 ```
 
-For OEM car covers with 36+ month lifespans at wholesale prices, visit autobean.en.alibaba.com.
+For OEM car covers with 36+ month lifespans at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

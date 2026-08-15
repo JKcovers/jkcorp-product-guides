@@ -28,4 +28,4 @@ Spare covers are sized by tire diameter. To find yours: tire width (e.g., 265mm)
 
 OEM manufacturers offer custom-printed spare tire covers — your logo, your artwork, or vehicle-specific designs. MOQ for custom covers is typically 50-100 pieces.
 
-For OEM spare tire covers with 99% UV protection and custom printing, visit autobean.en.alibaba.com.
+For OEM spare tire covers with 99% UV protection and custom printing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

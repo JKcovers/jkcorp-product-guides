@@ -20,4 +20,4 @@ Oxford fabric with UV coating blocks 90-95% of UV. Silver or light-colored cover
 - Water no longer beads on the surface
 - Bike still feels hot to touch under the cover on sunny days
 
-For OEM motorcycle covers with certified UV rejection and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with certified UV rejection and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

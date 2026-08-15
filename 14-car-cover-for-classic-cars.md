@@ -27,4 +27,4 @@ Classic cars have unique body lines that universal covers can't accommodate. A c
 - Remove the cover monthly to inspect for moisture or pest issues.
 - Wash the cover every 3-6 months.
 
-For OEM classic car covers with fleece inner lining, custom sizing, and 99% UV rejection, visit autobean.en.alibaba.com.
+For OEM classic car covers with fleece inner lining, custom sizing, and 99% UV rejection, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

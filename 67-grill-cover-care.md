@@ -27,4 +27,4 @@ Grill covers sit close to heat sources and absorb grease that degrades fabric co
 - In winter, brush snow off promptly to prevent fabric stress
 - Store the cover indoors during the off-season (after cleaning)
 
-For OEM grill covers with grease-resistant coatings and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM grill covers with grease-resistant coatings and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

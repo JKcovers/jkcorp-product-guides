@@ -32,4 +32,4 @@ Not all covers are equal environmentally:
 
 A single car cover, used consistently, saves thousands of gallons of water, prevents chemical pollution, avoids a paint respray, and extends your vehicle's useful life. For a product that costs $50-150, the environmental ROI is exceptional.
 
-For durable multi-layer car covers with 3+ year lifespans at wholesale prices, visit autobean.en.alibaba.com.
+For durable multi-layer car covers with 3+ year lifespans at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -19,4 +19,4 @@ Not every car cover purchase requires a top-tier multi-layer composite. Here's a
 - **New or luxury vehicles:** A $150 cover protecting a $50,000 car's paint is a 0.3% investment.
 - **Long-term outdoor storage:** If the car won't move for 3+ months, invest in the best cover you can afford.
 
-For OEM car covers at every price point with wholesale pricing, visit autobean.en.alibaba.com.
+For OEM car covers at every price point with wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

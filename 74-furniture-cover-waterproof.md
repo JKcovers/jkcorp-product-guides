@@ -23,4 +23,4 @@ Beyond 3000mm, the extra waterproofing usually comes from heavier coatings that 
 - **Seams:** Taped or sealed seams prevent leaks at the stitch lines — the most common failure point.
 - **Ventilation:** Flaps or vents reduce condensation and wind lift.
 
-For OEM furniture covers with verified 3000mm ratings and UV-resistant fabric, visit autobean.en.alibaba.com.
+For OEM furniture covers with verified 3000mm ratings and UV-resistant fabric, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

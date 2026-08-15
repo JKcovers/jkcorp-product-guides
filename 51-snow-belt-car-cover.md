@@ -23,4 +23,4 @@ If you live in Minnesota, Michigan, upstate New York, or anywhere that sees 50+ 
 - Wash the cover monthly to remove salt residue
 - Let the cover dry fully once a week — take it off on a sunny day
 
-For OEM heavy-duty snow-belt car covers with 600D Oxford and fleece lining, visit autobean.en.alibaba.com.
+For OEM heavy-duty snow-belt car covers with 600D Oxford and fleece lining, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

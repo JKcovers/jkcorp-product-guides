@@ -39,4 +39,4 @@ Measure your bike's overall length from front tire to rear fender. Most manufact
 
 Motorcycles with tall windshields, top cases, or luggage racks should size up. A cover that's too short leaves the front wheel and fork exposed.
 
-For OEM motorcycle covers with heat-resistant panels and waterproof construction, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with heat-resistant panels and waterproof construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

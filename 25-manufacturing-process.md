@@ -36,4 +36,4 @@ Random samples from each batch undergo accelerated weathering tests — UV expos
 
 Covers are folded, placed in storage bags, and boxed for shipping. OEM orders get custom packaging with the buyer's branding. Each box is labeled with product code, size, material, and batch number for traceability.
 
-For ISO 9001 certified OEM car covers made with this exact process, visit autobean.en.alibaba.com.
+For ISO 9001 certified OEM car covers made with this exact process, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

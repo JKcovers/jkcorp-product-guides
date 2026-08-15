@@ -26,4 +26,4 @@ A $15-25 wholesale cover retails for $50-90 on Amazon or your own site. That's a
 - **Alibaba wholesale:** Sell B2B to other retailers
 - **Dealership direct:** Pitch local dealers on branded covers
 
-For ISO 9001 certified OEM car covers with MOQ from 50 pcs and custom branding, visit autobean.en.alibaba.com.
+For ISO 9001 certified OEM car covers with MOQ from 50 pcs and custom branding, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

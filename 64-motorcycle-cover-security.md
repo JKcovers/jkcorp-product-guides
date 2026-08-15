@@ -27,4 +27,4 @@ A motorcycle cover is often dismissed as weather protection only. But a good cov
 
 Never rely on a cover alone — it hides the bike but doesn't secure it. Always pair a cover with at least one physical lock.
 
-For OEM motorcycle covers with reinforced lock holes and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with reinforced lock holes and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

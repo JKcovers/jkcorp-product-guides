@@ -21,4 +21,4 @@ Budget PEVA covers degrade fast. In direct sun, expect 6 months. In covered park
 - Store in the included bag when not in use
 - Repair small tears immediately with fabric patch tape
 
-For OEM car covers with 3+ year durability at wholesale prices, visit autobean.en.alibaba.com.
+For OEM car covers with 3+ year durability at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

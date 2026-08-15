@@ -18,4 +18,4 @@ A covered car is anonymous. Thieves can't see if valuables are inside or if the 
 
 The biggest concern for apartment dwellers is "where do I put the cover?" Most quality covers come with a storage bag that fits in your trunk, a closet, or under the bed.
 
-For OEM car covers designed for apartment and condo parking at wholesale prices, visit autobean.en.alibaba.com.
+For OEM car covers designed for apartment and condo parking at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

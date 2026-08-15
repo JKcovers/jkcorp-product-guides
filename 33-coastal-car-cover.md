@@ -18,4 +18,4 @@ Living near the ocean is great for your lifestyle but hard on your car. Salt-lad
 - **Full under-body straps** — coastal winds are stronger and more consistent than inland
 - **Machine-washable** — rinse salt residue from the cover monthly
 
-For OEM coastal-grade car covers with 600D Oxford and fleece lining, visit autobean.en.alibaba.com.
+For OEM coastal-grade car covers with 600D Oxford and fleece lining, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -47,4 +47,4 @@ A fitted fabric cover designed for your hull.
 
 If you store your boat for 3+ winters, a custom cover is the better investment. For one-off storage or extreme climates where you need a complete seal, shrink wrap still wins.
 
-For OEM custom boat covers with marine-grade solution-dyed polyester, visit autobean.en.alibaba.com.
+For OEM custom boat covers with marine-grade solution-dyed polyester, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

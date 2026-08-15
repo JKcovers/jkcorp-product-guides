@@ -39,4 +39,4 @@ The fastest way to fold a cover for the bag:
 
 A $2 storage bag protecting a $100 cover that lasts 2x longer = the best value purchase in car care.
 
-For OEM car covers with premium storage bags included, visit autobean.en.alibaba.com.
+For OEM car covers with premium storage bags included, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

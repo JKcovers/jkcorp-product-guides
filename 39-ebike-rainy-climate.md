@@ -19,4 +19,4 @@ A cover rated for "occasional rain" will soak through after 4-6 hours of steady 
 - **Quick-release buckles** — you'll take this cover on and off daily; velcro wears out in 6 months of wet use
 - **Dark colors** — hide road spray stains better than light colors
 
-For OEM rain-ready ebike battery covers with sealed seams and 3000mm+ waterproof ratings, visit autobean.en.alibaba.com.
+For OEM rain-ready ebike battery covers with sealed seams and 3000mm+ waterproof ratings, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

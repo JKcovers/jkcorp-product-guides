@@ -20,4 +20,4 @@ A quality multi-layer outdoor car cover costs $50-150 and lasts 2-3 years. Even 
 
 A $100 cover that prevents $3,000 in paint and interior damage is a 30x return on investment. If you plan to sell your car within 5 years, a cover pays for itself many times over.
 
-For OEM car covers that protect your vehicle's resale value at wholesale prices, visit autobean.en.alibaba.com.
+For OEM car covers that protect your vehicle's resale value at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

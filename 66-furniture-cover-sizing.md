@@ -35,4 +35,4 @@ L-shaped sectionals need careful measuring. Measure each section individually â€
 - Handles for one-person removal
 - Dark color (hides stains)
 
-For OEM outdoor furniture covers with custom sizing at wholesale prices, visit autobean.en.alibaba.com.
+For OEM outdoor furniture covers with custom sizing at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

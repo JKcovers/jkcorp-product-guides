@@ -71,4 +71,4 @@ Pure polyester (without the Oxford weave) is primarily used for indoor car cover
 
 The best outdoor car covers don't choose one material — they combine them. A premium cover might use a coated Oxford outer shell, a PE waterproof membrane, a breathable middle layer, and a soft polyester or fleece inner lining. This gives you the waterproofing of PEVA, the durability of Oxford, and the softness of polyester, all in one product.
 
-For OEM multi-layer car covers in Oxford, PEVA, and composite materials with custom sizing, visit autobean.en.alibaba.com.
+For OEM multi-layer car covers in Oxford, PEVA, and composite materials with custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

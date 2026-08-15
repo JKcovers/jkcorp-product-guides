@@ -49,4 +49,4 @@ When comparing products, look for these specifications:
 - **Outdoor parking in heavy rain/snow**: Multi-layer waterproof cover with 3000mm+ rating and soft inner lining. Don't skimp.
 - **Long-term outdoor storage (months)**: Premium multi-layer with 3000mm+ rating, UV rejection, ventilation flaps, and under-body straps.
 
-For high-quality multi-layer waterproof car covers at wholesale prices, visit autobean.en.alibaba.com.
+For high-quality multi-layer waterproof car covers at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

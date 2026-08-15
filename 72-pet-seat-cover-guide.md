@@ -27,4 +27,4 @@ Dogs shed, drool, and dig. A single long ride without protection can embed fur i
 
 Measure the rear seat width. Most covers fit sedans and SUVs; truck rear seats and extended cab pickups need larger sizes. Universal covers with adjustable straps fit most vehicles.
 
-For OEM pet seat covers with waterproof backing and custom sizes at wholesale prices, visit autobean.en.alibaba.com.
+For OEM pet seat covers with waterproof backing and custom sizes at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

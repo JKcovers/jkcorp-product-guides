@@ -30,4 +30,4 @@ Universal covers with adjustable straps fit 80% of integrated downtube batteries
 | Rear rack | 16-20 in | 4-5 in | Large |
 | External frame | 12-16 in | 3-5 in | Standard with adjustable straps |
 
-For OEM ebike battery covers with custom sizing and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM ebike battery covers with custom sizing and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

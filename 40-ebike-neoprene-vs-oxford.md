@@ -28,4 +28,4 @@ Lightweight plastic that's 100% waterproof and costs the least. The catch: it de
 | 420D Oxford | ✅ | ❌ | ✅ | 24-36 months |
 | PEVA | ✅ | ❌ | ❌ | 6-8 months |
 
-For OEM ebike covers in all three materials at wholesale prices, visit autobean.en.alibaba.com.
+For OEM ebike covers in all three materials at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

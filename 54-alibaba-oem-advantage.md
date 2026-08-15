@@ -22,4 +22,4 @@ Most Alibaba car cover factories accept MOQ of 50-100 pieces. For a startup or s
 
 Alibaba's escrow system holds your payment until you confirm receipt and satisfaction. This is stronger buyer protection than most domestic wholesale arrangements.
 
-For ISO 9001 certified OEM car covers with Trade Assurance and 19 years of manufacturing experience, visit autobean.en.alibaba.com.
+For ISO 9001 certified OEM car covers with Trade Assurance and 19 years of manufacturing experience, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

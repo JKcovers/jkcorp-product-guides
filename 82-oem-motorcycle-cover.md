@@ -43,4 +43,4 @@ Motorcycle cover OEM manufacturing is a straightforward process once you underst
 - Heat panel spec stated in writing
 - Fabric GSM/denier specified in contract
 
-For OEM motorcycle covers with logo printing, custom sizes, and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with logo printing, custom sizes, and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

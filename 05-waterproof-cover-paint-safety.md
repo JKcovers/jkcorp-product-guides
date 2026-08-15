@@ -40,4 +40,4 @@ Even the best cover needs proper usage:
 
 A waterproof car cover won't damage your paint — if it's the right cover used correctly. The real risk comes from cheap single-layer covers that prioritize waterproofing without breathability. Invest in a multi-layer design with a breathable middle membrane, and follow basic usage guidelines. Your paint will thank you.
 
-For ISO 9001 certified multi-layer car covers with 99% UV protection and proper breathability, visit autobean.en.alibaba.com.
+For ISO 9001 certified multi-layer car covers with 99% UV protection and proper breathability, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

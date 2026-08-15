@@ -36,4 +36,4 @@ Heat is one problem; UV is another. A cover with 99% UV rejection blocks both th
 - Use a windshield sunshade UNDER the cover for maximum effect
 - Choose light colors — the color matters more than the material
 
-For OEM reflective car covers with 99% UV rejection at wholesale prices, visit autobean.en.alibaba.com.
+For OEM reflective car covers with 99% UV rejection at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

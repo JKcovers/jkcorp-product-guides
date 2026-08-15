@@ -36,4 +36,4 @@ Light colors are more visible at night — a parked bike under a dark cover is n
 
 Most factories offer a standard palette (black, silver, grey, blue, red, orange). OEM buyers can spec custom Pantone-matched colors — the same 323-color system used for premium brands.
 
-For OEM motorcycle covers in custom colors at wholesale prices, visit autobean.en.alibaba.com.
+For OEM motorcycle covers in custom colors at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

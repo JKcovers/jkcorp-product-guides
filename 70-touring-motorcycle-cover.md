@@ -28,4 +28,4 @@ On tour, your bike faces a new environment every night: hotel parking lots, camp
 - If the cover is wet from morning dew, dry it over the bike for 10-15 minutes before packing
 - Carry a stuff sack backup — covers get damp and need separate storage
 
-For OEM touring motorcycle covers with heat-resistant panels and compact packing at wholesale prices, visit autobean.en.alibaba.com.
+For OEM touring motorcycle covers with heat-resistant panels and compact packing at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

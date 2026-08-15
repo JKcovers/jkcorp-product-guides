@@ -33,4 +33,4 @@ Electric vehicles have specific protection needs that gas cars don't. Battery th
 - **Covers without port access:** Charging requires removal every time
 - **Unsecured covers:** EVs have smooth roofs; wind lift is a bigger issue than on cars with roof channels
 
-For OEM EV car covers with reflective layers and charge port access, visit autobean.en.alibaba.com.
+For OEM EV car covers with reflective layers and charge port access, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
