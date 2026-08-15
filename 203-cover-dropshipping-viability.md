@@ -62,4 +62,4 @@ Dropshipping covers as a main model: **not viable for most sellers.** As a testi
 
 ## Build a Viable Model at JK Corp
 
-JK Corp supports bulk import programs with MOQ from 50 pcs, OEM branding, and export packaging sized to cut freight costs. For import-based cover business models instead of dropshipping, visit autobean.en.alibaba.com.
+JK Corp supports bulk import programs with MOQ from 50 pcs, OEM branding, and export packaging sized to cut freight costs. For import-based cover business models instead of dropshipping, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

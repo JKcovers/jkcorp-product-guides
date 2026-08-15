@@ -57,4 +57,4 @@ A scanned certificate proves nothing by itself. Verify:
 
 ## Certificates at JK Corp
 
-JK Corp is ISO 9001 certified and can provide fabric weight, waterproof, UV, and color fastness test reports with your order batch. Third-party SGS/BV inspection can be arranged. For certified OEM cover production, visit autobean.en.alibaba.com.
+JK Corp is ISO 9001 certified and can provide fabric weight, waterproof, UV, and color fastness test reports with your order batch. Third-party SGS/BV inspection can be arranged. For certified OEM cover production, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

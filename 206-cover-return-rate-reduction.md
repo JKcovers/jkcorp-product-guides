@@ -59,4 +59,4 @@ The most mature brands close the loop:
 
 ## Return Reduction at JK Corp
 
-JK Corp supports vehicle-specific size programs, strict AQL inspection, and packaging engineered to survive freight. Share your return data with us and we'll adjust specs. For OEM covers built to reduce returns, visit autobean.en.alibaba.com.
+JK Corp supports vehicle-specific size programs, strict AQL inspection, and packaging engineered to survive freight. Share your return data with us and we'll adjust specs. For OEM covers built to reduce returns, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

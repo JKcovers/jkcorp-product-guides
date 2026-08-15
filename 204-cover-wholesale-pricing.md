@@ -66,4 +66,4 @@ Typical cover resale margins:
 
 ## Transparent Pricing at JK Corp
 
-JK Corp publishes clear tier pricing with full fabric specs, and provides carton dimensions and loading counts so you can compute landed cost. For wholesale cover pricing strategy and quotes, visit autobean.en.alibaba.com.
+JK Corp publishes clear tier pricing with full fabric specs, and provides carton dimensions and loading counts so you can compute landed cost. For wholesale cover pricing strategy and quotes, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

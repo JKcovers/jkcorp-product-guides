@@ -65,4 +65,4 @@ Work with your OEM partner to finalize:
 
 ## Private Label at JK Corp
 
-JK Corp has helped distributors and e-commerce sellers launch private label car cover brands with custom fabrics, fits, logos, and packaging. For private label car cover programs, visit autobean.en.alibaba.com.
+JK Corp has helped distributors and e-commerce sellers launch private label car cover brands with custom fabrics, fits, logos, and packaging. For private label car cover programs, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

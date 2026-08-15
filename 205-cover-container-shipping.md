@@ -64,4 +64,4 @@ This data lets you compare freight scenarios before committing.
 
 ## Container Planning at JK Corp
 
-JK Corp provides exact carton specs, vacuum packing options, and computed 20GP/40HQ loading counts with every quote. For container shipping plans for covers, visit autobean.en.alibaba.com.
+JK Corp provides exact carton specs, vacuum packing options, and computed 20GP/40HQ loading counts with every quote. For container shipping plans for covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

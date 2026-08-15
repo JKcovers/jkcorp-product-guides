@@ -63,4 +63,4 @@ A $12 landed cover typically needs a $39.99-49.99 retail price to clear ~25-30% 
 
 ## Amazon-Ready Production at JK Corp
 
-JK Corp supplies Amazon sellers with FBA-ready covers: UPC-labeled packaging, optimized carton sizes, pre-shipment inspection, and private label branding. For Amazon car cover FBA sourcing, visit autobean.en.alibaba.com.
+JK Corp supplies Amazon sellers with FBA-ready covers: UPC-labeled packaging, optimized carton sizes, pre-shipment inspection, and private label branding. For Amazon car cover FBA sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
