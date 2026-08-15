@@ -58,4 +58,4 @@ Whatever the incoterm, the landed cost still includes destination port fees, cus
 
 ## FOB/CIF Cover Orders at JK Corp
 
-JK Corp quotes FOB Ningbo and CIF to major ports worldwide. We provide exact carton dimensions, weights, and loading counts so you can calculate landed cost before ordering. For FOB and CIF quotes on OEM covers, visit autobean.en.alibaba.com.
+JK Corp quotes FOB Ningbo and CIF to major ports worldwide. We provide exact carton dimensions, weights, and loading counts so you can calculate landed cost before ordering. For FOB and CIF quotes on OEM covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -47,4 +47,4 @@ A cover that is too small strains the zippers and leaves furniture exposed. One 
 
 ## The OEM Perspective
 
-At JK Corp, we manufacture winter furniture covers in 420D Oxford with PU coating, reinforced stitching, and anti-UV treatment. Wholesale and private-label buyers can specify fabric weight, color, logo, and packaging. For OEM furniture covers and custom winter protection products, visit autobean.en.alibaba.com.
+At JK Corp, we manufacture winter furniture covers in 420D Oxford with PU coating, reinforced stitching, and anti-UV treatment. Wholesale and private-label buyers can specify fabric weight, color, logo, and packaging. For OEM furniture covers and custom winter protection products, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

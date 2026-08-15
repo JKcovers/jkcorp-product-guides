@@ -29,4 +29,4 @@ The best setup for problem drinkers:
 - Check the seams: waterproofing fails at seams — look for sealed/taped seams
 - Test with water: pour a cup on the cover before buying if possible
 
-For OEM waterproof pet seat covers with 3000mm-rated backing and sealed seams, visit autobean.en.alibaba.com.
+For OEM waterproof pet seat covers with 3000mm-rated backing and sealed seams, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

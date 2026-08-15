@@ -66,4 +66,4 @@ Measure length, width, and height — including the handles, chute, and any atta
 
 ## OEM Snow Blower Covers
 
-JK Corp manufactures custom snow blower covers in heavy-duty waterproof Oxford with reinforced corners and custom branding. Wholesale and private-label programs available. For OEM snow blower covers, visit autobean.en.alibaba.com.
+JK Corp manufactures custom snow blower covers in heavy-duty waterproof Oxford with reinforced corners and custom branding. Wholesale and private-label programs available. For OEM snow blower covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

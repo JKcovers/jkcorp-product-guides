@@ -40,4 +40,4 @@ Re-treat every 12-18 months for outdoor covers, or whenever water stops beading.
 - Mildew — clean before treating
 - Sun-rotted fabric — the material itself is gone
 
-For OEM car covers with durable factory coatings that need less frequent re-treatment, visit autobean.en.alibaba.com.
+For OEM car covers with durable factory coatings that need less frequent re-treatment, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

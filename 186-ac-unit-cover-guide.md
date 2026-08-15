@@ -51,4 +51,4 @@ Condenser coils rust fastest in humid coastal air. A breathable cover protects t
 
 ## OEM AC Unit Covers
 
-JK Corp manufactures custom air conditioner outdoor unit covers in 420D/600D Oxford with vent panels, elastic hems, and custom branding. Wholesale and private-label available. For OEM AC unit covers, visit autobean.en.alibaba.com.
+JK Corp manufactures custom air conditioner outdoor unit covers in 420D/600D Oxford with vent panels, elastic hems, and custom branding. Wholesale and private-label available. For OEM AC unit covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

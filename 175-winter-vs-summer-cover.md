@@ -48,4 +48,4 @@ Two mid-range seasonal covers outperform one premium all-season cover for nearly
 - **Switch to winter cover:** Nighttime temps consistently below 40°F
 - **Store the off-season cover:** Washed, dried, bagged
 
-For OEM winter and summer car covers — buy both, protect year-round — visit autobean.en.alibaba.com.
+For OEM winter and summer car covers — buy both, protect year-round — visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

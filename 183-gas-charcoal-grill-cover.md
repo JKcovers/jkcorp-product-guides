@@ -45,4 +45,4 @@ Measure both the grill body and the side shelves or propane tank. Gas grills wit
 
 ## OEM Grill Covers from JK Corp
 
-JK Corp manufactures custom covers for gas grills, charcoal kettles, and smokers in 420D/600D Oxford with custom dimensions and private-label branding. For OEM gas and charcoal grill covers, visit autobean.en.alibaba.com.
+JK Corp manufactures custom covers for gas grills, charcoal kettles, and smokers in 420D/600D Oxford with custom dimensions and private-label branding. For OEM gas and charcoal grill covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

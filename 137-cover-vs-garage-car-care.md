@@ -43,4 +43,4 @@ A quality cover in a garage beats either alone: the cover adds dust protection, 
 
 A garage bay costs $50-200/month. A quality cover costs $50-150 once. For most owners, a cover delivers 70-80% of a garage's paint protection at 1% of the cost.
 
-For OEM car covers that work with or without a garage, visit autobean.en.alibaba.com.
+For OEM car covers that work with or without a garage, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -57,4 +57,4 @@ A quality bicycle outdoor cover costs a fraction of a tune-up. It keeps the driv
 
 ## OEM Bicycle Covers
 
-JK Corp manufactures custom bicycle covers and ebike covers in waterproof Oxford and PEVA, with lock loops, reflective strips, and custom branding. Wholesale and private-label programs available. For OEM bicycle outdoor covers, visit autobean.en.alibaba.com.
+JK Corp manufactures custom bicycle covers and ebike covers in waterproof Oxford and PEVA, with lock loops, reflective strips, and custom branding. Wholesale and private-label programs available. For OEM bicycle outdoor covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

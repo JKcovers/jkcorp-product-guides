@@ -53,4 +53,4 @@ In mild, dry climates (or under a covered patio), a good cushion cover alone pro
 
 ## OEM Cushion Storage Solutions
 
-JK Corp manufactures outdoor cushion covers and storage bags in waterproof Oxford and PEVA, with custom sizes and private-label branding. For OEM cushion storage products, visit autobean.en.alibaba.com.
+JK Corp manufactures outdoor cushion covers and storage bags in waterproof Oxford and PEVA, with custom sizes and private-label branding. For OEM cushion storage products, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

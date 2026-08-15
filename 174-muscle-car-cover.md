@@ -34,4 +34,4 @@ Muscle cars sit for months in winter. A breathable fleece-lined cover is essenti
 
 A show-grade paint job costs $5,000-15,000. A $60-100 cover that prevents one swirl mark, one bird dropping etch, or one season of UV fade pays for itself hundreds of times over.
 
-For OEM fleece-lined muscle car covers with show-safe inner linings, visit autobean.en.alibaba.com.
+For OEM fleece-lined muscle car covers with show-safe inner linings, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

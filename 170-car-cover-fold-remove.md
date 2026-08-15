@@ -31,4 +31,4 @@ A wet cover should NEVER go straight into the bag — mildew develops within day
 
 Never drag. Always lift and fold. This single habit extends both paint life and cover life.
 
-For OEM car covers with storage bags and crease-resistant construction, visit autobean.en.alibaba.com.
+For OEM car covers with storage bags and crease-resistant construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -40,4 +40,4 @@ A cover past its prime stops protecting and starts harming:
 - Repair small tears immediately with patch tape
 - Never machine-dry (kills waterproofing)
 
-For OEM motorcycle covers with 3+ year lifespans and verified materials, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with 3+ year lifespans and verified materials, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

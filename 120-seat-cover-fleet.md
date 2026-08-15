@@ -36,4 +36,4 @@ A $60 cover protecting a $1,000 seat for 3 years = 5.5x ROI, not counting resale
 
 Fleet orders qualify for significant OEM discounts. Custom branding, standardized sizing, and replacement-part availability make a single OEM supplier the smart choice.
 
-For OEM fleet seat covers with bulk pricing and custom branding, visit autobean.en.alibaba.com.
+For OEM fleet seat covers with bulk pricing and custom branding, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

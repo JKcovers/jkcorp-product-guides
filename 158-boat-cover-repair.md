@@ -48,4 +48,4 @@ Small damage in a fabric that's otherwise healthy:
 
 A patch kit costs $15-30. A new quality boat cover costs $300-800. If the fabric is sound, patching is obviously worth it. If the fabric is degraded, patching is throwing money away.
 
-For OEM boat covers with reinforced seams that need fewer repairs, visit autobean.en.alibaba.com.
+For OEM boat covers with reinforced seams that need fewer repairs, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

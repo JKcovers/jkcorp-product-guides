@@ -37,4 +37,4 @@ Winter storage demands maximum protection:
 
 Many owners keep two covers: a lightweight summer cover and a heavy winter cover. Total cost is comparable to one premium all-season cover — but each does its job better.
 
-For OEM seasonal boat covers with climate-specific construction, visit autobean.en.alibaba.com.
+For OEM seasonal boat covers with climate-specific construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -31,4 +31,4 @@ If you use a full car cover, the mirror pockets ARE the protection — pre-shape
 - As an extra layer with a car cover in harsh climates
 - Protection against UV and bird droppings on the housing
 
-For OEM mirror covers with fleece lining and compatible car cover pockets, visit autobean.en.alibaba.com.
+For OEM mirror covers with fleece lining and compatible car cover pockets, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

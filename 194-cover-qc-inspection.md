@@ -63,4 +63,4 @@ Most professional inspections use AQL (Acceptable Quality Limit) random sampling
 
 ## Factory QC at JK Corp
 
-JK Corp runs three-stage QC on every OEM cover order: incoming material inspection, in-line inspection, and final AQL inspection before packing. Inspection reports and videos can be shared with buyers. For cover QC inspection support on your order, visit autobean.en.alibaba.com.
+JK Corp runs three-stage QC on every OEM cover order: incoming material inspection, in-line inspection, and final AQL inspection before packing. Inspection reports and videos can be shared with buyers. For cover QC inspection support on your order, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -46,4 +46,4 @@ An RV cover costs $150-400 — about 1-2% of a typical RV's value. It prevents:
 - Decal fading (expensive to replace)
 - Fiberglass oxidation (permanent dullness)
 
-For OEM RV and van covers with access zippers and roof reinforcement, visit autobean.en.alibaba.com.
+For OEM RV and van covers with access zippers and roof reinforcement, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

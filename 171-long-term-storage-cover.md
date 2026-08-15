@@ -43,4 +43,4 @@ Storing a car for weeks or months is different from daily parking. The cover bec
 
 **Outdoor:** Full multi-layer cover required, plus periodic checks after storms.
 
-For OEM multi-layer car covers with breathable membranes for long-term storage, visit autobean.en.alibaba.com.
+For OEM multi-layer car covers with breathable membranes for long-term storage, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

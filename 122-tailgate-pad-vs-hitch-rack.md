@@ -52,4 +52,4 @@ Pickup truck owners have two popular ways to carry bikes: tailgate pads and hitc
 - **Expensive bikes, long trips, security:** Hitch rack
 - **Best of both:** Pad for around-town, rack for serious rides
 
-For OEM tailgate pads with 600D Oxford and custom branding, visit autobean.en.alibaba.com.
+For OEM tailgate pads with 600D Oxford and custom branding, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

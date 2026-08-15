@@ -37,4 +37,4 @@ A cover cannot keep a bike "warm" outdoors — it slows heat loss, it doesn't ge
 
 Insulated covers are a real, measurable benefit — but they're the second line of defense. Battery care is the first. Use an insulated cover AND bring the battery indoors for real winter protection.
 
-For OEM neoprene and fleece-lined insulated motorcycle covers, visit autobean.en.alibaba.com.
+For OEM neoprene and fleece-lined insulated motorcycle covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

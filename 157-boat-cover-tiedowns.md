@@ -44,4 +44,4 @@ The industry guideline: one tie-down point for every 2 feet of boat length, mini
 
 The bow is the hardest area to secure — it's pointed, high, and catches wind first. A center support pole plus crossed tie-downs keeps the bow tight.
 
-For OEM boat covers with reinforced tie-down loops at the right spacing, visit autobean.en.alibaba.com.
+For OEM boat covers with reinforced tie-down loops at the right spacing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

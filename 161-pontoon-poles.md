@@ -45,4 +45,4 @@ A 24-foot pontoon deck is 8.5 feet wide and nearly flat. Without support, the co
 - **Spring-loaded poles:** Keep constant tension
 - **Fixed frame kits:** The premium option — permanent support structure
 
-For OEM pontoon boat covers with pole ports and compatible support systems, visit autobean.en.alibaba.com.
+For OEM pontoon boat covers with pole ports and compatible support systems, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

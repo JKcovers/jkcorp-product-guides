@@ -35,4 +35,4 @@ Most pontoon covers need a support frame — the wide flat deck sags without one
 - **UV-resistant fabric:** Decks fade fast
 - **Access zippers:** For entering the boat under cover
 
-For OEM pontoon boat covers with frame kits and custom sizing, visit autobean.en.alibaba.com.
+For OEM pontoon boat covers with frame kits and custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

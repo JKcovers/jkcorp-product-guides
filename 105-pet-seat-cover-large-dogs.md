@@ -28,4 +28,4 @@ Measure the rear seat width and the seatback height. SUVs and trucks usually nee
 
 Never let a large dog ride in the front passenger seat — the airbag is a serious danger. Always rear seat, always anchored cover or crash-tested crate.
 
-For OEM heavy-duty pet seat covers rated for large dogs, visit autobean.en.alibaba.com.
+For OEM heavy-duty pet seat covers rated for large dogs, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

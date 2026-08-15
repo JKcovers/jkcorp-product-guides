@@ -56,4 +56,4 @@ Swing cushions are the first casualty. If your swing has cushions, either remove
 
 ## OEM Swing and Hammock Covers
 
-JK Corp manufactures custom swing covers and hammock covers in waterproof Oxford with breathable linings, custom sizes, and private-label branding. Wholesale programs available from MOQ 50 pcs. For OEM swing and hammock covers, visit autobean.en.alibaba.com.
+JK Corp manufactures custom swing covers and hammock covers in waterproof Oxford with breathable linings, custom sizes, and private-label branding. Wholesale programs available from MOQ 50 pcs. For OEM swing and hammock covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

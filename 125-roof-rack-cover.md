@@ -36,4 +36,4 @@ Roof rack cargo faces the harshest conditions on any vehicle: 70 mph wind, rain 
 
 Roof loading raises the vehicle's center of gravity. Stay within the rack's rated capacity and the vehicle's roof-load limit — typically 100-165 lbs for passenger vehicles.
 
-For OEM soft cargo carriers and roof rack covers at wholesale prices, visit autobean.en.alibaba.com.
+For OEM soft cargo carriers and roof rack covers at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

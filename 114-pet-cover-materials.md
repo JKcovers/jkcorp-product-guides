@@ -44,4 +44,4 @@ Pet seat covers come in three main material families. Each has a personality, an
 
 For most owners: **600D Oxford** — the best balance of durability, waterproofing, and price. Choose quilted for calm dogs and comfort; choose PVC only for extreme mess situations.
 
-For OEM pet seat covers in Oxford, quilted, and PVC at wholesale prices, visit autobean.en.alibaba.com.
+For OEM pet seat covers in Oxford, quilted, and PVC at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

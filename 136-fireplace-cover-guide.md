@@ -33,4 +33,4 @@ Always let the fire pit cool completely (2-4 hours minimum) before covering. Cov
 - Rinse after rain (acidic rain residue degrades fabric)
 - Air dry before storing
 
-For OEM fire pit and fireplace covers with heat-tolerant construction, visit autobean.en.alibaba.com.
+For OEM fire pit and fireplace covers with heat-tolerant construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

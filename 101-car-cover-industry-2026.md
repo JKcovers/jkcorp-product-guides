@@ -44,4 +44,4 @@ EV covers (reflective, charge-port-access) are the fastest-growing segment. EV o
 2. Build a niche (EV, anti-hail, custom print) rather than competing on generic covers
 3. Source direct from ISO-certified OEM factories
 
-For an ISO 9001 OEM car cover factory with 19 years of experience, visit autobean.en.alibaba.com.
+For an ISO 9001 OEM car cover factory with 19 years of experience, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

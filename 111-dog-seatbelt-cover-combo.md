@@ -32,4 +32,4 @@ In a 30 mph crash, an unrestrained 50-lb dog becomes a 1,500-lb projectile. Even
 | Anchored seat cover | Protects seats, gives the dog grip |
 | Door flaps | Protects panels from paws |
 
-For OEM pet seat covers with integrated seatbelt anchors, visit autobean.en.alibaba.com.
+For OEM pet seat covers with integrated seatbelt anchors, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

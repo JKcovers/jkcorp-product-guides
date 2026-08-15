@@ -45,4 +45,4 @@ A $60-80 fleet cover protecting a $25,000 vehicle's paint and interior:
 2. Track paint condition and detailing costs for 3 months
 3. Expand to the full fleet on demonstrated ROI
 
-For OEM fleet car covers with custom branding and bulk pricing, visit autobean.en.alibaba.com.
+For OEM fleet car covers with custom branding and bulk pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

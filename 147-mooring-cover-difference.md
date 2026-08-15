@@ -33,4 +33,4 @@ A mooring cover left on during a trailer trip flaps apart at 60 mph. A trailerin
 - Boat lives at a slip/mooring: buy a mooring cover
 - Both: buy both, or a premium cover rated for dual use (rare)
 
-For OEM boat covers — mooring, trailering, and storage — visit autobean.en.alibaba.com.
+For OEM boat covers — mooring, trailering, and storage — visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

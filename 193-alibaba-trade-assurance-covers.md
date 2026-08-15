@@ -48,4 +48,4 @@ Covers have specifications that matter: fabric denier, waterproof coating, stitc
 
 ## The Manufacturer's View
 
-At JK Corp, we ship 100% of OEM cover orders with Trade Assurance enabled. It protects buyers and signals our commitment to quality and on-time delivery. For Trade Assurance cover orders with custom logos, sizes, and packaging, visit autobean.en.alibaba.com.
+At JK Corp, we ship 100% of OEM cover orders with Trade Assurance enabled. It protects buyers and signals our commitment to quality and on-time delivery. For Trade Assurance cover orders with custom logos, sizes, and packaging, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

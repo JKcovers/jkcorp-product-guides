@@ -58,4 +58,4 @@ Even with a cover, tilt the unit slightly or raise it off the ground so standing
 
 ## OEM Water Heater Covers
 
-JK Corp manufactures custom outdoor water heater covers in waterproof Oxford with vent panels and custom branding, plus matching covers for heat pumps and condensers. For OEM water heater cover production, visit autobean.en.alibaba.com.
+JK Corp manufactures custom outdoor water heater covers in waterproof Oxford with vent panels and custom branding, plus matching covers for heat pumps and condensers. For OEM water heater cover production, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

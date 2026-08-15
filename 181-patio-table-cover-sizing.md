@@ -52,4 +52,4 @@ Glass and stone tops are heavier than wood — the cover must be padded or fleec
 
 ## OEM Patio Table Covers
 
-JK Corp supplies custom patio table covers with precise size charts, umbrella slots, and tie-down straps. Wholesale, private label, and custom sizes are available. For OEM patio table cover sizing and production, visit autobean.en.alibaba.com.
+JK Corp supplies custom patio table covers with precise size charts, umbrella slots, and tie-down straps. Wholesale, private label, and custom sizes are available. For OEM patio table cover sizing and production, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

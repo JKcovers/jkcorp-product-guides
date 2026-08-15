@@ -29,4 +29,4 @@ A leather cover that blocks the side airbag is a safety hazard. Verify the cover
 
 Leather covers transform a basic interior for a fraction of factory leather. Choose quality leatherette, custom fit, and airbag-safe construction.
 
-For OEM leather and leatherette seat covers with custom fit, visit autobean.en.alibaba.com.
+For OEM leather and leatherette seat covers with custom fit, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -60,4 +60,4 @@ Measure your cart's length, width, and height — including mirrors, rear seats,
 
 ## OEM Golf Cart Covers
 
-JK Corp manufactures custom golf cart covers in 420D/600D Oxford with wind straps, soft linings, and custom sizing for 2-seat, 4-seat, and lifted carts. Private-label and wholesale programs available. For OEM golf cart covers, visit autobean.en.alibaba.com.
+JK Corp manufactures custom golf cart covers in 420D/600D Oxford with wind straps, soft linings, and custom sizing for 2-seat, 4-seat, and lifted carts. Private-label and wholesale programs available. For OEM golf cart covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

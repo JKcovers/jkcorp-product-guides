@@ -45,4 +45,4 @@ A cover delivers 80% of a carport's protection at under 10% of the cost.
 - **Renters, travelers, multiple locations:** A cover wins — portable protection
 - **Most owners:** A cover is the smarter first purchase; add a carport later if you stay put
 
-For OEM car covers that deliver 80% of carport protection at 10% of the cost, visit autobean.en.alibaba.com.
+For OEM car covers that deliver 80% of carport protection at 10% of the cost, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -32,4 +32,4 @@ Hatchbacks have steeper rear glass and shorter roofs than sedans. Covers must:
 
 Buying one size up "to be safe" is the #1 mistake for compact owners. An oversized cover flaps, pools water, and abrades paint. Compacts need an accurate, snug fit — measure your car, buy the matching size.
 
-For OEM compact car covers with correct small-car sizing, visit autobean.en.alibaba.com.
+For OEM compact car covers with correct small-car sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

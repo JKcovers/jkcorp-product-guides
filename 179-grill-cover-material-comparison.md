@@ -46,4 +46,4 @@ Trapped moisture corrodes grills from the inside. A breathable fabric lets water
 
 ## OEM Grill Cover Manufacturing
 
-JK Corp produces custom grill covers in 420D/600D Oxford, PEVA, and PVC, with custom sizes, logos, colors, and packaging. Wholesale and private-label programs available from MOQ 50 pcs. For OEM grill cover material options, visit autobean.en.alibaba.com.
+JK Corp produces custom grill covers in 420D/600D Oxford, PEVA, and PVC, with custom sizes, logos, colors, and packaging. Wholesale and private-label programs available from MOQ 50 pcs. For OEM grill cover material options, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

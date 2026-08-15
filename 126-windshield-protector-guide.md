@@ -32,4 +32,4 @@ A reflective sunshade reduces interior temperature 15-25°F and blocks 99%+ UV �
 
 Padded windshield covers absorb small-hail impacts. For severe hail warnings, they're the best portable protection available.
 
-For OEM windshield protectors — frost, sun, and hail — visit autobean.en.alibaba.com.
+For OEM windshield protectors — frost, sun, and hail — visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

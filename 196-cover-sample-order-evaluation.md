@@ -64,4 +64,4 @@ Good sample evaluation is a conversation, not a verdict. Send the factory a stru
 
 ## Sample Evaluation at JK Corp
 
-JK Corp sends free stock samples and affordable customized samples with digital proofs before production. We provide video inspection and will adjust samples until they meet your spec. To order cover samples for evaluation, visit autobean.en.alibaba.com.
+JK Corp sends free stock samples and affordable customized samples with digital proofs before production. We provide video inspection and will adjust samples until they meet your spec. To order cover samples for evaluation, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

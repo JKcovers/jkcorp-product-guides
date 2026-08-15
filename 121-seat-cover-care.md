@@ -46,4 +46,4 @@ Seat covers are a maintenance-friendly upgrade — but they need their own care 
 - Stains that won't come out (embedded odor)
 - Stretched-out fit that bunches
 
-For OEM seat covers in fabric, neoprene, and leather with easy-care construction, visit autobean.en.alibaba.com.
+For OEM seat covers in fabric, neoprene, and leather with easy-care construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

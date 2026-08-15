@@ -36,4 +36,4 @@ Some owners use a cover with a center zip or magnetic panels that can be peeled 
 
 Show car covers live in trailers or display cases when not on the car. Always fold accordion-style and store in a clean bag — a dusty storage situation transfers grit to the cover, then to the car.
 
-For OEM show car covers with ultra-soft linings and custom branding, visit autobean.en.alibaba.com.
+For OEM show car covers with ultra-soft linings and custom branding, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

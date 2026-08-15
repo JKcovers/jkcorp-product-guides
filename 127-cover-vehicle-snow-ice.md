@@ -40,4 +40,4 @@ When your car sits outside in snow country, a full-vehicle cover is the ultimate
 
 Full winter covers add 5-10 minutes per use. For daily drivers, many owners use covers only during long-term parking. For vehicles parked for weeks, the cover is essential.
 
-For OEM winter vehicle covers with 600D Oxford and fleece lining, visit autobean.en.alibaba.com.
+For OEM winter vehicle covers with 600D Oxford and fleece lining, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

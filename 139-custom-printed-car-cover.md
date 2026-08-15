@@ -37,4 +37,4 @@ Custom-printed car covers have moved from novelty to serious business. From corp
 4. Bulk production (25-35 days for full-print)
 5. QC: print alignment, color accuracy, seam quality
 
-For OEM custom-printed car covers with sublimation printing and Pantone matching, visit autobean.en.alibaba.com.
+For OEM custom-printed car covers with sublimation printing and Pantone matching, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -43,4 +43,4 @@ Vents help but don't replace good habits:
 - Use support poles to create an air gap
 - Air the boat out on dry days
 
-For OEM boat covers with pre-installed ventilation ports in the right positions, visit autobean.en.alibaba.com.
+For OEM boat covers with pre-installed ventilation ports in the right positions, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

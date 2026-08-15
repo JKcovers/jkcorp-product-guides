@@ -41,4 +41,4 @@ For importers and brands, the growth means:
 
 The car cover market's growth is structural — urbanization, climate change, and EV adoption are all long-term trends. For buyers and sellers alike, the opportunity is in quality: covers that protect for 3+ years are winning against disposable budget options.
 
-For OEM car cover manufacturing with 19 years of experience and ISO 9001 certification, visit autobean.en.alibaba.com.
+For OEM car cover manufacturing with 19 years of experience and ISO 9001 certification, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

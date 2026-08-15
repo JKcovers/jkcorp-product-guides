@@ -33,4 +33,4 @@ Measure propeller diameter (tip to tip) and hub size. Covers typically fit prop 
 - **Wet mooring:** Use an anti-fouling-treated cover
 - **Off-season storage:** Essential — longest exposure period
 
-For OEM marine propeller covers with anti-fouling fabric options, visit autobean.en.alibaba.com.
+For OEM marine propeller covers with anti-fouling fabric options, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

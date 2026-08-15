@@ -37,4 +37,4 @@ For urine or vomit:
 
 Store the clean, fully dry cover folded loosely. Never store damp — mildew is nearly impossible to remove from waterproof-backed fabric.
 
-For OEM machine-washable pet seat covers with durable waterproof backing, visit autobean.en.alibaba.com.
+For OEM machine-washable pet seat covers with durable waterproof backing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

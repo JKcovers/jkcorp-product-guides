@@ -32,4 +32,4 @@ If you trailer the boat, a platform-inclusive cover needs extra reinforcement â€
 
 Platform sections need the same marine-grade fabric as the rest of the cover â€” solution-dyed polyester resists the UV and moisture the platform faces constantly.
 
-For OEM boat covers with swim platform extensions and custom sizing, visit autobean.en.alibaba.com.
+For OEM boat covers with swim platform extensions and custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

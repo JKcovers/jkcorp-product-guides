@@ -52,4 +52,4 @@ MOQ and unit price trade against each other: lower MOQ usually means higher pric
 
 ## Flexible MOQ at JK Corp
 
-JK Corp offers MOQ from 50 pcs on custom logo covers and from 100 pcs on full custom products, with stock samples free of charge. We'll show you how to structure your first order to keep costs low. For flexible MOQ quotes, visit autobean.en.alibaba.com.
+JK Corp offers MOQ from 50 pcs on custom logo covers and from 100 pcs on full custom products, with stock samples free of charge. We'll show you how to structure your first order to keep costs low. For flexible MOQ quotes, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

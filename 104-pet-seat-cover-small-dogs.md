@@ -22,4 +22,4 @@ Most small-dog owners use a rear-seat cover sized for the car, not the dog. A co
 
 For the smallest dogs, a crash-tested carrier or crate on the seat may be safer than a cover alone. Many owners combine: a waterproof cover under the crate to protect the seat.
 
-For OEM pet seat covers with raised edges and extra non-slip surfaces for small dogs, visit autobean.en.alibaba.com.
+For OEM pet seat covers with raised edges and extra non-slip surfaces for small dogs, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

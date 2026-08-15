@@ -41,4 +41,4 @@ PPF is self-sacrificing — it absorbs damage so the paint doesn't. But the film
 | Cover | $50-150 | PPF + paint from UV/dust |
 | Both | — | Complete parked + driving protection |
 
-For OEM car covers that protect your PPF investment, visit autobean.en.alibaba.com.
+For OEM car covers that protect your PPF investment, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

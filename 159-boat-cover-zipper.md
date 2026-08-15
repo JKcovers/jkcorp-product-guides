@@ -37,4 +37,4 @@ When buying a boat cover, look for:
 - Zippered access panels for the areas you use most
 - Flap covers over zippers (protects from UV and rain)
 
-For OEM boat covers with marine-grade zippers and protective flaps, visit autobean.en.alibaba.com.
+For OEM boat covers with marine-grade zippers and protective flaps, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -46,4 +46,4 @@ When comparing covers, build a quick checklist:
 - [ ] Seams: sealed/taped
 - [ ] Heat panels: 300°F rated
 
-For OEM motorcycle covers with verified specs — 420D Oxford, 40 mph wind rating, 3000mm waterproof — visit autobean.en.alibaba.com.
+For OEM motorcycle covers with verified specs — 420D Oxford, 40 mph wind rating, 3000mm waterproof — visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

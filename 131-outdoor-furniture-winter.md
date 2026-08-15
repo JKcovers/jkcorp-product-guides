@@ -47,4 +47,4 @@ When winter hits, outdoor furniture faces its harshest test. The right strategy 
 4. Elevate off the ground (airflow)
 5. Check covers monthly, brush off snow
 
-For OEM outdoor furniture covers with waterproof construction, visit autobean.en.alibaba.com.
+For OEM outdoor furniture covers with waterproof construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

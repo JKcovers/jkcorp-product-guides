@@ -33,4 +33,4 @@ Flaps attach to the main cover with straps that slip over the headrests and down
 - **Eager leavers:** Dogs that bolt out the door scratch the sill
 - **Muddy adventures:** Trail dogs bring dirt onto every surface
 
-For OEM pet seat covers with integrated door flaps at wholesale prices, visit autobean.en.alibaba.com.
+For OEM pet seat covers with integrated door flaps at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

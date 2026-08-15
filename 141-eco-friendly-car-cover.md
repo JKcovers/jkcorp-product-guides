@@ -36,4 +36,4 @@ Most car covers use petroleum-derived polyester and PVC coatings. They degrade a
 
 The most eco-friendly car cover is the one you buy once and use for 5+ years. Choose quality, choose rPET if available, and repair rather than replace. That combination cuts your cover footprint by 60-80%.
 
-For OEM car covers with recycled polyester options and extended lifespans, visit autobean.en.alibaba.com.
+For OEM car covers with recycled polyester options and extended lifespans, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

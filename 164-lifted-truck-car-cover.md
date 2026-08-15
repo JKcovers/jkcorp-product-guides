@@ -32,4 +32,4 @@ A lifted truck is taller than stock but often the same length. Cover sizing char
 
 If your truck has a bed cap, tonneau, or rack, the height calculation changes entirely — measure to the tallest accessory, not the cab roof. Custom sizing based on your full setup is the safest option.
 
-For OEM truck covers with custom sizing for lifts and accessories, visit autobean.en.alibaba.com.
+For OEM truck covers with custom sizing for lifts and accessories, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

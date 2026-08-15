@@ -50,4 +50,4 @@ Measure the outer diameter of the bowl at its widest point, including any rim or
 
 ## OEM Fire Pit Covers from JK Corp
 
-JK Corp manufactures custom fire pit covers in 420D and 600D Oxford with elastic hems, custom sizes, and private-label branding. For wholesale fire pit covers and custom outdoor protection products, visit autobean.en.alibaba.com.
+JK Corp manufactures custom fire pit covers in 420D and 600D Oxford with elastic hems, custom sizes, and private-label branding. For wholesale fire pit covers and custom outdoor protection products, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

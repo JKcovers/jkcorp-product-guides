@@ -64,4 +64,4 @@ Measure length, width, and height including mirrors, racks, and the winch. Add 1
 
 ## OEM ATV Covers
 
-JK Corp manufactures custom ATV covers in waterproof Oxford with UV treatment, soft linings, and custom sizing. Wholesale, private label, and custom color/logo programs available. For OEM ATV covers, visit autobean.en.alibaba.com.
+JK Corp manufactures custom ATV covers in waterproof Oxford with UV treatment, soft linings, and custom sizing. Wholesale, private label, and custom color/logo programs available. For OEM ATV covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

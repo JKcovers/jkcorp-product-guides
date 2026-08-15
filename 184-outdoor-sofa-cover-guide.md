@@ -51,4 +51,4 @@ A quality 600D Oxford outdoor sofa cover lasts 3-5 seasons with basic care. Chea
 
 ## OEM Outdoor Sofa Covers
 
-JK Corp manufactures custom outdoor sofa covers in 420D/600D Oxford with breathable linings, custom sizes, and private-label options. Wholesale programs available. For OEM outdoor sofa covers, visit autobean.en.alibaba.com.
+JK Corp manufactures custom outdoor sofa covers in 420D/600D Oxford with breathable linings, custom sizes, and private-label options. Wholesale programs available. For OEM outdoor sofa covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

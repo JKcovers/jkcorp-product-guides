@@ -60,4 +60,4 @@ Tight vacuum or flat packing reduces carton volume and can cut freight by 20-40%
 
 ## Custom Packaging at JK Corp
 
-JK Corp offers printed polybags, hang tags, insert cards, color boxes, and custom cartons with your branding — plus vacuum and flat packing for freight savings. For custom cover packaging options, visit autobean.en.alibaba.com.
+JK Corp offers printed polybags, hang tags, insert cards, color boxes, and custom cartons with your branding — plus vacuum and flat packing for freight savings. For custom cover packaging options, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

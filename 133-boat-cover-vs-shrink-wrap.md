@@ -51,4 +51,4 @@ Boat winterization comes down to two main choices: shrink wrap (single-use plast
 
 Some owners wrap in winter (complete seal) and use a fabric cover the rest of the year. Maximum protection, but no cost advantage — you're paying for both.
 
-For OEM custom boat covers that beat shrink wrap's 5-year cost, visit autobean.en.alibaba.com.
+For OEM custom boat covers that beat shrink wrap's 5-year cost, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

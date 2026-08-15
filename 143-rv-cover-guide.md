@@ -51,4 +51,4 @@ RV covers are sized by the rig's length and height class:
 - Skipping access zippers
 - Tightening straps too much (damages gutters and seals)
 
-For OEM RV covers with roof reinforcement and access zippers, visit autobean.en.alibaba.com.
+For OEM RV covers with roof reinforcement and access zippers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

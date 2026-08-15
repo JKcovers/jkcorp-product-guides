@@ -38,4 +38,4 @@ Alloy wheels are expensive, exposed, and constantly attacked by brake dust, road
 
 For daily driving, the rim protector band is more practical than a cover. For storage, full covers are the answer. Many enthusiasts use both.
 
-For OEM wheel covers and rim protectors at wholesale prices, visit autobean.en.alibaba.com.
+For OEM wheel covers and rim protectors at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -35,4 +35,4 @@ Some owners rinse droppings off daily instead of using a cover. This works but r
 
 If your car parks under trees or near birds (which is most outdoor parking), a cover is the cheapest paint insurance available. A $60 cover prevents $300-2,000 in paint correction.
 
-For OEM car covers with easy-clean UV-treated outer shells, visit autobean.en.alibaba.com.
+For OEM car covers with easy-clean UV-treated outer shells, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

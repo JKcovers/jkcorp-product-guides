@@ -27,4 +27,4 @@ Keep a cleaning kit in the trunk: paper towels, enzymatic cleaner, and a spare l
 
 Once your puppy is house-trained, calm in the car, and done teething, upgrade from the budget cover to a durable one. The puppy phase destroys covers; there's no point buying premium until it ends.
 
-For OEM waterproof pet seat covers built for the puppy phase, visit autobean.en.alibaba.com.
+For OEM waterproof pet seat covers built for the puppy phase, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

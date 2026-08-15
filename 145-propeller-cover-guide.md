@@ -33,4 +33,4 @@ Boat owners who trailered or dry-stored their vessels in 2024-2025 increased pro
 
 For manufacturers with existing marine lines, adding a propeller cover line is low-cost: same materials, smaller patterns, easy customization (brand colors, custom sizing). MOQ can be low (50-100 pcs) because the product is compact and margins are attractive.
 
-For OEM propeller cover manufacturing with salt-resistant fabric and custom sizing, visit autobean.en.alibaba.com.
+For OEM propeller cover manufacturing with salt-resistant fabric and custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

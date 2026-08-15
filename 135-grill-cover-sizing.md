@@ -39,4 +39,4 @@ Add 2-4 inches to each dimension for a proper fit:
 
 A cover with an adjustable drawstring hem adapts to minor size differences and keeps the cover snug in wind. Look for this feature — it makes size mistakes more forgiving.
 
-For OEM grill covers with drawstring hems and full base coverage, visit autobean.en.alibaba.com.
+For OEM grill covers with drawstring hems and full base coverage, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

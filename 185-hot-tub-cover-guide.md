@@ -47,4 +47,4 @@ A waterlogged foam core loses most of its insulation value. Replacing a waterlog
 
 ## Insulated Cover Manufacturing
 
-JK Corp manufactures custom insulated hot tub covers with marine vinyl skins, tapered high-density foam cores, and reinforced handles and straps. OEM and private-label programs available. For hot tub cover production, visit autobean.en.alibaba.com.
+JK Corp manufactures custom insulated hot tub covers with marine vinyl skins, tapered high-density foam cores, and reinforced handles and straps. OEM and private-label programs available. For hot tub cover production, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

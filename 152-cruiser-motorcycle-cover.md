@@ -37,4 +37,4 @@ Many cruiser riders make this mistake: they buy a "Large" sport bike cover and i
 
 For cruiser owners, cover width is as important as length. Measure handlebar-to-handlebar and bag-to-bag before buying. An ill-fitting cover flaps, sags, and wears out fast on a cruiser's wide frame.
 
-For OEM cruiser motorcycle covers with saddlebag coverage and wide-fit sizing, visit autobean.en.alibaba.com.
+For OEM cruiser motorcycle covers with saddlebag coverage and wide-fit sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

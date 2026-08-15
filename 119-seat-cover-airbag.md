@@ -32,4 +32,4 @@ Older vehicles without side airbags don't need cutouts — but verify your vehic
 
 Airbag safety is not optional. A $30 universal cover with no cutouts is a $30 gamble with your safety. Choose airbag-compatible covers — custom-fit covers from quality manufacturers are tested for this.
 
-For OEM airbag-compatible seat covers with certified cutouts, visit autobean.en.alibaba.com.
+For OEM airbag-compatible seat covers with certified cutouts, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -35,4 +35,4 @@ Roll bars rise 6-12 inches above the seat beltline. A standard convertible cover
 
 Never use a cover that sits ON the roll bar without reinforcement — the bar will rub through the fabric within months, and the fabric can scratch the bar's finish.
 
-For OEM convertible car covers with roll bar cutouts and custom sizing, visit autobean.en.alibaba.com.
+For OEM convertible car covers with roll bar cutouts and custom sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

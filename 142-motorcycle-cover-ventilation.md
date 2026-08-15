@@ -35,4 +35,4 @@ Quality covers use a microporous membrane — pores smaller than a raindrop but 
 
 If your bike parks outside regularly, a breathable cover is not a luxury — it's the difference between a dry bike and a corroding one.
 
-For OEM breathable motorcycle covers with waterproof membranes, visit autobean.en.alibaba.com.
+For OEM breathable motorcycle covers with waterproof membranes, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

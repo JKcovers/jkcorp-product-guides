@@ -28,4 +28,4 @@ If your boat has a livewell or bait station, ensure the cover has ventilation ov
 
 Fishing boats often trailer long distances. Use a trailering-rated cover with highway reinforcement, or verify the storage cover has adequate tie-downs.
 
-For OEM fishing boat covers with access zippers and salt-resistant construction, visit autobean.en.alibaba.com.
+For OEM fishing boat covers with access zippers and salt-resistant construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

@@ -33,4 +33,4 @@ Run your hand across the surface to smooth wrinkles. Check for gaps at the sides
 - Wash monthly (or after accidents)
 - Re-check strap tension monthly — straps stretch over time
 
-For OEM pet seat covers designed for tool-free 2-minute installation, visit autobean.en.alibaba.com.
+For OEM pet seat covers designed for tool-free 2-minute installation, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

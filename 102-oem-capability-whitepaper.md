@@ -54,6 +54,8 @@ ISO 9001:2015 | REACH/RoHS available for EU | OEKO-TEX options
 ## Contact
 
 - Alibaba Store: autobean.en.alibaba.com
+- OEM Website: www.jkcovers.com
+- Retail Website: www.customfitprotection.com
 - Email: info@jkcorp.cn
 - Phone: +86-13386615919
 

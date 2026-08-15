@@ -42,4 +42,4 @@ Seat upholstery absorbs sweat, spills, UV damage, and daily wear. Factory seats 
 
 For brands sourcing seat covers: custom templates (we have 300+), logo embroidery, and material selection are all available. MOQ from 100 pcs.
 
-For OEM car seat covers with custom fit and airbag-safe construction, visit autobean.en.alibaba.com.
+For OEM car seat covers with custom fit and airbag-safe construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

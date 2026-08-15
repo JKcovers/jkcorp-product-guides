@@ -43,4 +43,4 @@ Never use bleach on marine fabric — it degrades the fibers and waterproofing. 
 
 If mildew has penetrated the fabric's core (the smell persists after cleaning, the fabric shows dark staining throughout), replace the cover. Mildewed fabric is weakened and will fail early.
 
-For OEM breathable marine covers engineered to resist mildew, visit autobean.en.alibaba.com.
+For OEM breathable marine covers engineered to resist mildew, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

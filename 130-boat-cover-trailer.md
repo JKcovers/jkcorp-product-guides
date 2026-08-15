@@ -35,4 +35,4 @@ Using one cover for both means compromising one job.
 
 If you trailer your boat, a storage cover is not enough. Invest in a trailering-specific cover — it's cheaper than a new hull finish.
 
-For OEM trailering boat covers with reinforced tie-downs, visit autobean.en.alibaba.com.
+For OEM trailering boat covers with reinforced tie-downs, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

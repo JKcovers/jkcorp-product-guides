@@ -33,4 +33,4 @@ Summer is the season riders think covers matter least — it's also when covers 
 3. Park in shade whenever possible (cover + shade = coolest)
 4. Check for bird droppings weekly — summer acid etches fast
 
-For OEM summer motorcycle covers with light colors and high UV rejection, visit autobean.en.alibaba.com.
+For OEM summer motorcycle covers with light colors and high UV rejection, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

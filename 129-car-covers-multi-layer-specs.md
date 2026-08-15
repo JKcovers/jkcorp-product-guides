@@ -46,4 +46,4 @@ A "5-layer" that's actually 3 fabric layers + coatings counted separately is mar
 
 More layers is only meaningful if each layer has a real function and the total fabric weight is substantial. Ask for the GSM and the layer breakdown — a 7-layer cover weighing 180 gsm is thin layers stacked to impress; a 5-layer at 300 gsm is a genuinely premium product.
 
-For OEM multi-layer car covers with verified layer specs, visit autobean.en.alibaba.com.
+For OEM multi-layer car covers with verified layer specs, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

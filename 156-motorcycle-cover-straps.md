@@ -40,4 +40,4 @@ Motorcycle cover straps pass under the bike and cinch the cover tight against th
 - Replace worn webbing before it fails mid-storm
 - Keep clips clean (grit jams the buckles)
 
-For OEM motorcycle covers with multi-point strap systems and reinforced webbing, visit autobean.en.alibaba.com.
+For OEM motorcycle covers with multi-point strap systems and reinforced webbing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

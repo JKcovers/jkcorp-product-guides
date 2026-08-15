@@ -33,4 +33,4 @@ On windy days, install the cover front-first and immediately anchor the front st
 
 Removal is the reverse: pull the hem up from the rear, fold the cover over itself as you walk forward (accordion-style), and bag it immediately. Never drag the cover across the ground — it picks up grit that scratches paint next time.
 
-For OEM car covers designed for solo installation with mirror pockets and elastic hems, visit autobean.en.alibaba.com.
+For OEM car covers designed for solo installation with mirror pockets and elastic hems, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

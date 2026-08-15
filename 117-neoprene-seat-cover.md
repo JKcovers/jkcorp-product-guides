@@ -36,4 +36,4 @@ Neoprene — the wetsuit material — makes an exceptional seat cover. Here's wh
 
 Neoprene covers come in custom-fit (vehicle template) and universal styles. For fleets and brands, custom logo and color options are available.
 
-For OEM neoprene seat covers with waterproof construction, visit autobean.en.alibaba.com.
+For OEM neoprene seat covers with waterproof construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

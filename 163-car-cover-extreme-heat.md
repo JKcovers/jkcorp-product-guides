@@ -40,4 +40,4 @@ Desert parking means:
 
 Desert car owners should never buy a dark, non-reflective cover. Light reflective covers with 99% UV rejection are the only sensible choice for year-round desert parking.
 
-For OEM reflective car covers with 99% UV rejection for desert climates, visit autobean.en.alibaba.com.
+For OEM reflective car covers with 99% UV rejection for desert climates, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

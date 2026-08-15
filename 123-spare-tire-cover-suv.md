@@ -30,4 +30,4 @@ Size by tire diameter. Check the tire sidewall (e.g., 265/75R16 ≈ 32" diameter
 
 Custom-printed spare tire covers are a popular OEM product: your artwork, brand colors, or logo on durable vinyl or canvas. MOQ typically 50-100 pieces.
 
-For OEM spare tire covers with 99% UV protection and custom printing, visit autobean.en.alibaba.com.
+For OEM spare tire covers with 99% UV protection and custom printing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

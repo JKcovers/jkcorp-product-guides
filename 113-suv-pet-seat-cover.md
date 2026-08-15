@@ -33,4 +33,4 @@ SUVs and crossovers are the most popular dog-hauling vehicles in the world. Thei
 - **Waterproof with raised edges:** SUVs are adventure vehicles — mud and water containment matters
 - **Cargo-area hooks:** Some liners use OEM tie-down points
 
-For OEM SUV pet seat covers and cargo liners with XL sizing, visit autobean.en.alibaba.com.
+For OEM SUV pet seat covers and cargo liners with XL sizing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

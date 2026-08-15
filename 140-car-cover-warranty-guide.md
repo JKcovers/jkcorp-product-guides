@@ -43,4 +43,4 @@ Car cover warranties vary wildly — from "no warranty" to 5-year coverage. Unde
 
 A warranty is a quality signal, not protection from the elements. Buy from a manufacturer that stands behind defects — but assume the cover will need replacement in its rated lifespan regardless.
 
-For OEM car covers with 3-year defect warranties at wholesale prices, visit autobean.en.alibaba.com.
+For OEM car covers with 3-year defect warranties at wholesale prices, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

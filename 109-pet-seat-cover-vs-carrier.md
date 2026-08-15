@@ -38,4 +38,4 @@ The optimal setup for most owners:
 | 3-hour road trip | ❌ | ✅ | Best |
 | Puppy, any trip | ❌ | ✅ | Best |
 
-For OEM pet seat covers that work with crates and carriers, visit autobean.en.alibaba.com.
+For OEM pet seat covers that work with crates and carriers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

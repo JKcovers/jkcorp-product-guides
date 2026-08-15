@@ -46,4 +46,4 @@ If you're a pet brand or retailer sourcing pet seat covers:
 - Confirm MOQ (typically 100 pcs for custom printing)
 - Ask for digital proofs before production
 
-For OEM pet seat covers with waterproof backing, custom logo printing, and wholesale pricing, visit autobean.en.alibaba.com.
+For OEM pet seat covers with waterproof backing, custom logo printing, and wholesale pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

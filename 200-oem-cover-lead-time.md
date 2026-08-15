@@ -57,4 +57,4 @@ Typical OEM payment structure: 30% deposit to start production, 70% balance befo
 
 ## Lead Time at JK Corp
 
-JK Corp runs a stable 20-35 day bulk production window with milestone photo updates at every stage. Stock samples ship in 3-5 days. For OEM cover production planning and lead time quotes, visit autobean.en.alibaba.com.
+JK Corp runs a stable 20-35 day bulk production window with milestone photo updates at every stage. Stock samples ship in 3-5 days. For OEM cover production planning and lead time quotes, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

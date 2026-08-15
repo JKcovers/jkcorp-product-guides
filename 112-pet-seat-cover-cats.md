@@ -28,4 +28,4 @@ Cats scratch. When stressed, a cat will claw the seat cover and any exposed surf
 - Start with short trips
 - Keep the carrier covered on the seat — under the cover for extra security
 
-For OEM pet seat covers suitable for cat owners, visit autobean.en.alibaba.com.
+For OEM pet seat covers suitable for cat owners, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.

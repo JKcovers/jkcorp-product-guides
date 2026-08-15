@@ -43,4 +43,4 @@ A covered scooter is:
 - Protected from UV fading that kills resale value
 - Cleaner — no bird droppings or sap on the seat
 
-For OEM scooter covers with UV-resistant fabric and compact storage, visit autobean.en.alibaba.com.
+For OEM scooter covers with UV-resistant fabric and compact storage, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
