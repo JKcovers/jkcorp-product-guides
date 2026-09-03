@@ -86,6 +86,8 @@ Expert guides for car owners, wholesalers, and distributors. Written by a 19-yea
 - [Car Cover Import Checklist](53-b2b-import-checklist.md)
 - [Why Alibaba for OEM Covers](54-alibaba-oem-advantage.md)
 - [Multi-Category Cover Sourcing](59-multi-category-sourcing.md)
+- [How to Choose an OEM Manufacturer for Custom Campervan Seat Covers](376-oem-campervan-seat-cover-sourcing.md)
+- [Custom Full-Fit Printed Car Covers: An OEM Buyer's Guide to Patterns, Printing & Production](377-full-fit-custom-printed-car-cover.md)
 
 ## Boat, Furniture & Grill Covers
 
