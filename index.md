@@ -311,6 +311,16 @@ Expert guides for car owners, wholesalers, and distributors. Written by a 19-yea
 - [Roof Rack Covers — Protect Your Cargo From Highway Conditions](125-roof-rack-cover.md)
 - [Windshield Protectors and Covers — Ice, Sun, and Hail Defense](126-windshield-protector-guide.md)
 - [Side Mirror Covers — Protecting the Most Exposed Part of Your Car](128-mirror-cover-guide.md)
+- [Spare Tire Cover Buying Guide: Sizing, Materials and Mounting Options](494-spare-tire-cover-buying-guide.md)
+- [Spare Tire Cover Size Chart: Matching 13 to 17 Inch Wheels](495-spare-tire-cover-size-chart.md)
+- [Custom Printed Spare Tire Cover Guide: Artwork, Methods and Ordering](496-custom-printed-spare-tire-cover.md)
+- [Spare Tire Cover Material Comparison: Polyester, Canvas, Vinyl and Leather-Look](497-spare-tire-cover-material-comparison.md)
+- [Tire Storage Bag Guide for Seasonal Tires](498-tire-storage-bag-guide.md)
+- [Spare Tire Cover for SUVs and Off-Road Vehicles](499-suv-spare-tire-cover.md)
+- [Spare Tire Cover vs Hard Shell Cover](500-spare-tire-cover-vs-hard-shell.md)
+- [Spare Tire Cover Installation Guide](501-spare-tire-cover-installation.md)
+- [Spare Tire Cover Branding for Dealers](502-spare-tire-cover-branding.md)
+- [Spare Tire Cover OEM Sourcing Guide](503-spare-tire-cover-oem-sourcing.md)
 
 ---
 
