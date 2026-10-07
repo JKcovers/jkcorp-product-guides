@@ -76,4 +76,4 @@ Blurry or low-resolution images kill credibility. Use a tripod, focus on the fab
 
 **Show the cover doing its job in clear, honest light.** Seven well-executed shots outperform thirty mediocre ones.
 
-For OEM cover manufacturers with professional photography support, visit autobean.en.alibaba.com.
+For OEM cover manufacturers with professional photography support, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

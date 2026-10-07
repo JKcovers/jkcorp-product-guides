@@ -50,4 +50,4 @@ Cover manufacturing in China produces the majority of the world's car, motorcycl
 
 ## JK Corp as a Manufacturing Partner
 
-JK Corp is a Zhejiang-based OEM cover manufacturer with in-house cutting, sewing, and finishing lines, private label support, and documented QC. To evaluate cover manufacturing in China firsthand, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp is a Zhejiang-based OEM cover manufacturer with in-house cutting, sewing, and finishing lines, private label support, and documented QC. To evaluate cover manufacturing in China firsthand, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

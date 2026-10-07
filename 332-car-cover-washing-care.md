@@ -58,4 +58,4 @@ Replace the cover when the coating peels, water soaks through after re-treatment
 
 ## JK Corp Cover Care Support
 
-JK Corp supplies car covers with care labels, spare storage bags, and waterproofing re-treatment guidance for OEM and retail programs. For car cover washing and care products and advice, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies car covers with care labels, spare storage bags, and waterproofing re-treatment guidance for OEM and retail programs. For car cover washing and care products and advice, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

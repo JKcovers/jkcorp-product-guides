@@ -72,4 +72,4 @@ A longer warranty usually signals higher fabric quality — but read the conditi
 - Store spare covers flat, not folded tight
 - Remove covers during long UV exposure periods
 
-For OEM seat covers with strong warranties and durable construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM seat covers with strong warranties and durable construction, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

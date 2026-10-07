@@ -46,4 +46,4 @@ Customs holds, batch recalls, and marketplace delisting are the realistic risks.
 
 ## JK Corp EU-Ready Production
 
-JK Corp supplies car covers with REACH declarations and SVHC test reports as standard for EU-bound programs. For REACH car cover compliance in practice, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies car covers with REACH declarations and SVHC test reports as standard for EU-bound programs. For REACH car cover compliance in practice, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

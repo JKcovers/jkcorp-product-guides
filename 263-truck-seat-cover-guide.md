@@ -78,4 +78,4 @@ For trucks with split benches and storage compartments, custom-fit covers are wo
 - [ ] Fold-down armrest still functions
 - [ ] Under-seat storage access preserved
 
-For OEM truck seat covers built for work and play, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM truck seat covers built for work and play, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

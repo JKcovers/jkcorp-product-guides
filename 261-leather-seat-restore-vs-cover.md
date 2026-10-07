@@ -85,4 +85,4 @@ Choose a cover with a soft backing — some aggressive waterproof backings can t
 - UV is the #1 leather killer — parking in shade and using sunshades matter more than any product
 - A cover + regular conditioning protects better than either alone
 
-For OEM seat covers that protect your leather investment, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM seat covers that protect your leather investment, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

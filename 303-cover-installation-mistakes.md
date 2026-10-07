@@ -66,4 +66,4 @@ A flat cover traps rain on the roof, which pools, stretches fabric, and eventual
 
 **Clean, dry, cool, aligned, and anchored — in that order.** Five minutes of correct installation adds years to both the cover and the paint.
 
-For OEM car covers engineered for easy, secure installation, visit autobean.en.alibaba.com.
+For OEM car covers engineered for easy, secure installation, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -70,4 +70,4 @@ Reflective covers block UV that fades clear coats and oxidizes paint. The UV-blo
 - They protect against solar heat, not engine heat
 - A cover left on in high wind needs proper anchoring
 
-For OEM reflective car covers with tested heat reduction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM reflective car covers with tested heat reduction, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -66,4 +66,4 @@ Even with a cover, heavy snow on flat roofs stresses the vehicle. The cover shou
 
 **Winter-rated cover, dry car, anchored against wind, and checked regularly.** The right winter setup protects the car through the worst months.
 
-For OEM winter-rated car covers, visit autobean.en.alibaba.com.
+For OEM winter-rated car covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

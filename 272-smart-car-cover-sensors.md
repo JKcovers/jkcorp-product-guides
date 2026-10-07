@@ -64,4 +64,4 @@ Fleet operators can monitor parked vehicles remotely — temperature extremes, c
 
 Smart covers make sense for stored classics, fleets, and owners who park in exposed locations. For basic dust and weather protection, a standard cover is cheaper and has nothing to fail. The smart layer adds awareness, not protection — buy the fabric first.
 
-For OEM car covers with smart monitoring options, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers with smart monitoring options, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

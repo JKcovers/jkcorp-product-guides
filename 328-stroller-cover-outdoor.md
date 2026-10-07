@@ -46,4 +46,4 @@ Replace the cover when seams split, the coating peels, or water starts soaking t
 
 ## JK Corp Stroller Cover OEM
 
-JK Corp manufactures outdoor stroller covers in coated Oxford and breathable waterproof fabrics, with custom sizing, logo printing, and private label support for brands. For stroller cover outdoor production, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures outdoor stroller covers in coated Oxford and breathable waterproof fabrics, with custom sizing, logo printing, and private label support for brands. For stroller cover outdoor production, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

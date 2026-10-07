@@ -73,4 +73,4 @@ The result: rain runs off, but trapped moisture escapes.
 
 Budget covers usually force a choice — heavily coated for rain, or uncoated for breathability. If you must pick one, choose breathability in humid climates and waterproofing in rainy ones, then compensate with a parking location that helps (shade for humidity, airflow for rain).
 
-For OEM covers engineered to balance breathability and waterproofing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM covers engineered to balance breathability and waterproofing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

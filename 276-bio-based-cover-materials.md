@@ -73,4 +73,4 @@ Feedstock technology is improving quickly — second-generation bio-PET from non
 3. Decide biodegradable vs durable intent
 4. Verify certifications before trusting claims
 
-For OEM bio-based car covers with verified performance, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM bio-based car covers with verified performance, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

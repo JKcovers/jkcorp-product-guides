@@ -45,4 +45,4 @@ Fifth wheel covers are sized in feet by body length — but never trust the mode
 
 **Buy for the widest and tallest points, not the sticker length.** A fifth wheel cover that is too small strains at the slides; one too large flaps against the roof.
 
-For OEM fifth wheel covers and RV protective covers, visit autobean.en.alibaba.com.
+For OEM fifth wheel covers and RV protective covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

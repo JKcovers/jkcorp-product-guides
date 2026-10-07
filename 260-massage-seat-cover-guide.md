@@ -86,4 +86,4 @@ Built-in massage seats cost $1,000+ as an option. A quality massage seat cover d
 
 Massage covers are a fraction of the cost of chiropractic visits — a good one pays for itself in a few weeks of commutes.
 
-For OEM massage and comfort seat covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM massage and comfort seat covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

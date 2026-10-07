@@ -48,4 +48,4 @@ Choose a weatherproof fabric with:
 
 **Cover cool, cover clean, and never cover a running generator.** The right cover protects the generator — the right habits protect the cover.
 
-For OEM generator covers and outdoor equipment covers, visit autobean.en.alibaba.com.
+For OEM generator covers and outdoor equipment covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

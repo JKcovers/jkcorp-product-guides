@@ -46,4 +46,4 @@ Order the size that covers the loaded height, not the empty bed height. A cover 
 
 **Size for the loaded trailer, and always cover dry.** An ATV trailer cover works only when it fits the real shape of the load.
 
-For OEM ATV trailer covers and protective covers, visit autobean.en.alibaba.com.
+For OEM ATV trailer covers and protective covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -51,4 +51,4 @@ A 420D all-weather cover with a soft lining works acceptably in both settings. I
 
 ## JK Corp Cover Range
 
-JK Corp manufactures both garage dust covers and outdoor-rated covers, with soft linings, breathable panels, and custom branding. For garage vs outdoor car cover needs, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures both garage dust covers and outdoor-rated covers, with soft linings, breathable panels, and custom branding. For garage vs outdoor car cover needs, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

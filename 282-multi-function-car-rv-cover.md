@@ -59,4 +59,4 @@ A large, adjustable cover (typically 20-40 feet in length options) with elastic 
 
 A multi-function cover makes sense for owners with multiple vehicles used seasonally, or for those who protect different vehicles at different times of year. For a single daily driver, a dedicated fitted cover is still the better choice.
 
-For OEM multi-function covers built for cars, RVs, and trailers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM multi-function covers built for cars, RVs, and trailers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

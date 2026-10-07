@@ -40,4 +40,4 @@ Choose a tonneau cover if you use the truck bed daily and need fast access to ca
 
 **Protect the cargo with a tonneau; protect the truck with a full bed cover.** Many owners run both — a tonneau for daily use and a full cover for storage season.
 
-For OEM truck bed covers in custom sizes, visit autobean.en.alibaba.com.
+For OEM truck bed covers in custom sizes, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

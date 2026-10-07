@@ -43,4 +43,4 @@ Stock fit-specific weatherproof SKUs, add storage and anti-theft features where 
 
 ## JK Corp Motorcycle Cover Production
 
-JK Corp manufactures motorcycle covers across weatherproof, adventure, sport, and scooter lines, with private label and sample-fitment support for distributors. To act on these motorcycle cover market trends, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures motorcycle covers across weatherproof, adventure, sport, and scooter lines, with private label and sample-fitment support for distributors. To act on these motorcycle cover market trends, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

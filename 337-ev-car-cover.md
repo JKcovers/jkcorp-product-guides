@@ -46,4 +46,4 @@ EVs span compact sedans to large SUVs and trucks, so measure rather than assume:
 
 ## JK Corp EV Cover OEM
 
-JK Corp manufactures EV car covers with charging port flaps, breathable fabrics, and custom-fit patterns for major electric models, plus private label programs. For an EV car cover quote, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures EV car covers with charging port flaps, breathable fabrics, and custom-fit patterns for major electric models, plus private label programs. For an EV car cover quote, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

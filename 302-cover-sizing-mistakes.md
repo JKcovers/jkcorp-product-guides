@@ -66,4 +66,4 @@ The classic error: estimating "about 4.5 meters" instead of measuring. Cover siz
 
 **Measure the actual vehicle, in its actual condition, and buy the closest size — sizing up only when truly between sizes.** A correctly sized cover protects; a wrong one damages.
 
-For OEM covers in custom and semi-custom sizes, visit autobean.en.alibaba.com.
+For OEM covers in custom and semi-custom sizes, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

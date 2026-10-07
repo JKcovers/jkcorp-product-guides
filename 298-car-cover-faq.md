@@ -68,4 +68,4 @@ Yes for outdoor parkers: repainting or paint correction costs far more than a qu
 
 Buy for your climate and parking, not the lowest price. Check fabric specs, choose the right size, and cover a clean car.
 
-For OEM car covers built for every climate, visit autobean.en.alibaba.com.
+For OEM car covers built for every climate, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

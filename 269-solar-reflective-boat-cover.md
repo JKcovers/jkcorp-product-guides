@@ -64,4 +64,4 @@ UV is the primary enemy of gel coat. Reflection cuts UV exposure, slowing oxidat
 - The effect is strongest in direct sun; shaded moorings reduce the advantage
 - Periodic cleaning restores reflectivity — salt and grime dull the surface
 
-For OEM solar reflective boat covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM solar reflective boat covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

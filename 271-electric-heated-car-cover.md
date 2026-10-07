@@ -61,4 +61,4 @@ Many owners use both: a block heater for the block and a heated cover to retain 
 - Inspect the cord and element seasonally
 - Store dry in summer
 
-For OEM heated car covers engineered for cold climates, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM heated car covers engineered for cold climates, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

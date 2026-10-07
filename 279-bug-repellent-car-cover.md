@@ -70,4 +70,4 @@ Some covers use patterns or colors that insects avoid (bright white reflects hea
 
 For most daily drivers in temperate climates, the treatment is optional. For parked vehicles in insect-heavy areas, it is a genuine upgrade that keeps the cover and the paint cleaner between washes.
 
-For OEM bug-repellent car covers with safe, durable treatments, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM bug-repellent car covers with safe, durable treatments, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

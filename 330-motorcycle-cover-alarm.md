@@ -46,4 +46,4 @@ The cover still needs to be a good motorcycle cover first: 210D-300D weatherproo
 
 ## JK Corp Motorcycle Cover Production
 
-JK Corp manufactures motorcycle covers with alarm-ready designs, lock loops, reflective strips, and weatherproof fabric, plus custom branding for distributors. For a motorcycle cover with alarms, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures motorcycle covers with alarm-ready designs, lock loops, reflective strips, and weatherproof fabric, plus custom branding for distributors. For a motorcycle cover with alarms, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

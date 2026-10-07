@@ -68,4 +68,4 @@ Short-term, yes. Long-term, tarps chafe, trap moisture, and fail in UV within a 
 
 Measure carefully, choose marine fabric, use support poles and proper tie-downs, and always cover a dry boat. Do that and the cover protects your boat for years.
 
-For OEM boat covers in marine-grade fabrics, visit autobean.en.alibaba.com.
+For OEM boat covers in marine-grade fabrics, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

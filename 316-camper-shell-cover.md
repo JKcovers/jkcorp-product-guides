@@ -38,4 +38,4 @@ A camper shell (truck cap or topper) is a major investment — fiberglass, alumi
 
 **Fit the cover to the shell's tallest point, and secure it at every strap point.** A cover that shifts in the wind does more harm than no cover at all.
 
-For OEM camper shell covers and truck covers in custom sizes, visit autobean.en.alibaba.com.
+For OEM camper shell covers and truck covers in custom sizes, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -58,4 +58,4 @@ If your car has no heated seats, consider a heated seat cover — a cover with a
 - Air dry to preserve the membrane
 - Test heat transfer after each wash
 
-For OEM heated seat compatible covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM heated seat compatible covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -50,4 +50,4 @@ The boat cover market analysis below maps a category defined by seasonality and 
 
 ## JK Corp Marine Cover Production
 
-JK Corp manufactures trailerable, mooring, and winter boat covers with UV-stabilized, mildew-treated fabrics and full private label support. For boat cover market analysis in action, source at autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures trailerable, mooring, and winter boat covers with UV-stabilized, mildew-treated fabrics and full private label support. For boat cover market analysis in action, source at autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

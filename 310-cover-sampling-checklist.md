@@ -85,4 +85,4 @@ The best test is on an actual vehicle.
 
 **Test the sample as if it were the finished product — because it is.** Approve only what you would ship to your own customers.
 
-For OEM cover factories that get sampling right, visit autobean.en.alibaba.com.
+For OEM cover factories that get sampling right, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

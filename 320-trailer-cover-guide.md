@@ -49,4 +49,4 @@ Choose the size that covers all three. Trailers with spare-tire carriers or jack
 
 **Cover the tallest point, and strap every anchor.** A cover that flogs in the wind abrades the paint it is supposed to protect.
 
-For OEM trailer covers in custom sizes, visit autobean.en.alibaba.com.
+For OEM trailer covers in custom sizes, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

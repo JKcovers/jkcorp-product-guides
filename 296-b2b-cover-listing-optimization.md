@@ -59,4 +59,4 @@ B2B marketplace listing optimization for covers follows different rules than Ama
 
 ## JK Corp's B2B Presence
 
-JK Corp's Alibaba storefront runs spec-driven listings with OEM capability proof. See B2B marketplace listing optimization in practice, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp's Alibaba storefront runs spec-driven listings with OEM capability proof. See B2B marketplace listing optimization in practice, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

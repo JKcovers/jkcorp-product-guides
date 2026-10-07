@@ -73,4 +73,4 @@ When two covers look similar on paper, compare these details:
 
 Ultra-cheap covers (under $20) are usually thin non-woven polyester that tears at stress points within a season and degrades fast in UV. A mid-range cover at 3-4x the price typically lasts 4-6x longer — the value math favors quality in outdoor use.
 
-For OEM car covers in today's best fabrics, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers in today's best fabrics, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

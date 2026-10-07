@@ -43,4 +43,4 @@ Luggage covers are sized by bag capacity (20, 24, 28 inches). Measure your bag's
 
 **Size to the loaded bag, and re-treat the coating.** A waterproof luggage cover is only as waterproof as its coating maintenance.
 
-For OEM luggage covers and travel protection products, visit autobean.en.alibaba.com.
+For OEM luggage covers and travel protection products, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

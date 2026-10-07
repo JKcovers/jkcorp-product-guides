@@ -45,4 +45,4 @@ Because rates change with policy, the exact number must be verified at shipment 
 
 ## JK Corp Export Support
 
-JK Corp works with importers on US-bound cover programs, providing HS classification guidance, documentation, and packaging designed for efficient container use. For current US tariff car cover planning, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp works with importers on US-bound cover programs, providing HS classification guidance, documentation, and packaging designed for efficient container use. For current US tariff car cover planning, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

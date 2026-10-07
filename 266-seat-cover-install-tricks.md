@@ -64,4 +64,4 @@ Use a plastic trim tool or an old credit card to push fabric into tight crevices
 - Recline and return — no binding
 - Check all straps are hidden and comfortable
 
-For OEM seat covers engineered for easy installation, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM seat covers engineered for easy installation, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

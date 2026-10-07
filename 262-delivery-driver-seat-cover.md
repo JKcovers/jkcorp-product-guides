@@ -62,4 +62,4 @@ A quality driver seat cover costs $40-120. It protects $1,000+ of seat value —
 - Machine-wash monthly (check the label)
 - Treat with UV protectant in summer
 
-For OEM seat covers built for daily delivery work, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM seat covers built for daily delivery work, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

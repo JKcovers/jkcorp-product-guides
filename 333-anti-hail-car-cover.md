@@ -44,4 +44,4 @@ Buy one size up from a standard cover so the padded construction sits without st
 
 ## JK Corp Hail-Protection Covers
 
-JK Corp manufactures padded and impact-rated anti-hail car covers with multi-layer construction, elastic hems, and tie-down straps, plus OEM and private label programs. For anti-hail car cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures padded and impact-rated anti-hail car covers with multi-layer construction, elastic hems, and tie-down straps, plus OEM and private label programs. For anti-hail car cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

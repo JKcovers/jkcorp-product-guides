@@ -66,4 +66,4 @@ Applying waterproofing spray to a dirty or damp cover locks in dirt and fails to
 
 **Cold water, gentle detergent, air dry, no softener, no heat.** Clean covers protect better and last years longer.
 
-For OEM car covers with durable, easy-care fabrics, visit autobean.en.alibaba.com.
+For OEM car covers with durable, easy-care fabrics, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

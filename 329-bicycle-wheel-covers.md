@@ -55,4 +55,4 @@ A set of wheel covers costs a fraction of one tire replacement, and protects the
 
 ## JK Corp Bicycle Cover OEM
 
-JK Corp produces bicycle wheel covers and full bike covers in breathable and waterproof fabrics, with custom printing and private label programs. For bicycle wheel covers wholesale, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp produces bicycle wheel covers and full bike covers in breathable and waterproof fabrics, with custom printing and private label programs. For bicycle wheel covers wholesale, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

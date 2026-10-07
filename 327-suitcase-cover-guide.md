@@ -43,4 +43,4 @@ Measure the suitcase standing upright: height, width, and depth. Covers are sold
 
 **Buy for the loaded size, and protect the handle openings.** A suitcase cover that fits well disappears into the journey — that is exactly what it should do.
 
-For OEM suitcase covers and travel protection products, visit autobean.en.alibaba.com.
+For OEM suitcase covers and travel protection products, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -82,4 +82,4 @@ A deterrent cover works best with smart parking habits:
 - Repair tears promptly — birds find damaged cover edges attractive for perching
 - Re-tighten straps so the cover stays taught (loose covers flap and attract attention)
 
-For OEM bird deterrent car covers with full-body protection, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM bird deterrent car covers with full-body protection, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

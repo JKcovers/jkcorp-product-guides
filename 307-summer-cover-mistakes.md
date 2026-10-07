@@ -66,4 +66,4 @@ Packing a hot, dirty cover into its bag bakes in grit and stains, shortening its
 
 **Light color, UV-rated, breathable, and correctly anchored — on a cool car.** A summer cover should reflect heat, not trap it.
 
-For OEM reflective and breathable car covers for summer, visit autobean.en.alibaba.com.
+For OEM reflective and breathable car covers for summer, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

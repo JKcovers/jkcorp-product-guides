@@ -42,4 +42,4 @@ A dock box stores life jackets, lines, and electronics — and sits directly in 
 
 **Cover a dry box, and let the cover breathe.** The best dock box cover in the world cannot save a box that is sealed wet underneath it.
 
-For OEM dock box covers and marine protective covers, visit autobean.en.alibaba.com.
+For OEM dock box covers and marine protective covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

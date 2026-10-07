@@ -54,4 +54,4 @@ Measure with the bike on its center stand if possible; add accessory dimensions 
 
 ## JK Corp Motorcycle Cover OEM
 
-JK Corp manufactures motorcycle covers across five size classes with mirror pockets, lock loops, and custom patterns for popular models. For a motorcycle cover size chart in production, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures motorcycle covers across five size classes with mirror pockets, lock loops, and custom patterns for popular models. For a motorcycle cover size chart in production, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

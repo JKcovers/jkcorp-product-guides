@@ -47,4 +47,4 @@ Rolled-up awnings sit on the coach side for months between trips. During storage
 
 **Cover a clean, dry, fully rolled awning — never a wet one.** Moisture trapped under the cover is the fastest route to mildew on both fabrics.
 
-For OEM RV awning covers and protective covers, visit autobean.en.alibaba.com.
+For OEM RV awning covers and protective covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

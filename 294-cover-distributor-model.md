@@ -63,4 +63,4 @@ The cover distributor business model is straightforward on paper (buy bulk, sell
 
 ## JK Corp Distributor Programs
 
-JK Corp supports cover distributors with mixed-container MOQs, private label, sample fitment, and inspection-inclusive terms. To build your cover distributor business model, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supports cover distributors with mixed-container MOQs, private label, sample fitment, and inspection-inclusive terms. To build your cover distributor business model, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

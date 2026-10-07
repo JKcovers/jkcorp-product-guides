@@ -44,4 +44,4 @@ Measure the exterior housing: width, height, and depth, including any protruding
 
 **Match the cover to the housing, and let the unit breathe.** Ventilation holes prevent the condensation that corrodes the very unit the cover protects.
 
-For OEM air conditioner covers and outdoor equipment covers, visit autobean.en.alibaba.com.
+For OEM air conditioner covers and outdoor equipment covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

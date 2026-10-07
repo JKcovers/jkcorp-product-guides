@@ -55,4 +55,4 @@ This protects your money either way.
 
 Choose reupholstery when the seats themselves are broken. Choose covers when the seats are fine but the surface is at risk — and for 90% of daily drivers, covers are the right call.
 
-For OEM seat covers that protect your original upholstery, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM seat covers that protect your original upholstery, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -54,4 +54,4 @@ The model suits people with sourcing, QC, or logistics experience in textiles. I
 
 ## JK Corp Agent Programs
 
-JK Corp welcomes cover sourcing agents with clear commission terms, sample support, and inspection-ready production. To start a cover agent commission program, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp welcomes cover sourcing agents with clear commission terms, sample support, and inspection-ready production. To start a cover agent commission program, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

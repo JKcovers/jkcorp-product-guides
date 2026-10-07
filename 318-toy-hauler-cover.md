@@ -47,4 +47,4 @@ Look for multi-layer fabric with a waterproof coating and a soft inner lining th
 
 **Vent the garage bay and reinforce the roof — a toy hauler cover must handle the tallest, widest points of the coach.** Measure everything, then choose the next size up if any number is close to the limit.
 
-For OEM toy hauler covers and RV covers, visit autobean.en.alibaba.com.
+For OEM toy hauler covers and RV covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

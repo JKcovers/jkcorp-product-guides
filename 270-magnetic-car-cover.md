@@ -62,4 +62,4 @@ Magnetic covers are tested for everyday wind — parking lots, garages, light st
 - Garage users who want a dust cover without install hassle
 - Aluminum/fiberglass owners — look elsewhere (straps required)
 
-For OEM magnetic car covers with strong neodymium magnets, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM magnetic car covers with strong neodymium magnets, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

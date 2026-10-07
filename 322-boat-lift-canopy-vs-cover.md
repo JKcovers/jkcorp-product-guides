@@ -47,4 +47,4 @@ Choose a canopy if the boat lives on the lift and you use it often — the conve
 
 **A canopy protects the boat where it rests; a cover protects the boat everywhere.** Many owners combine them — canopy for daily docking, cover for the off-season.
 
-For OEM boat covers in custom sizes, visit autobean.en.alibaba.com.
+For OEM boat covers in custom sizes, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

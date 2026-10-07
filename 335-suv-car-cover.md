@@ -54,4 +54,4 @@ Larger covers weigh more: expect 5-10 lbs for a full-size SUV cover, more for pr
 
 ## JK Corp SUV Cover OEM
 
-JK Corp manufactures SUV car covers with roof rail-friendly designs, multi-layer fabrics, and custom sizing for specific models. For an SUV car cover wholesale program, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures SUV car covers with roof rail-friendly designs, multi-layer fabrics, and custom sizing for specific models. For an SUV car cover wholesale program, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

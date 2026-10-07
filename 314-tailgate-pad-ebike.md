@@ -42,4 +42,4 @@ Even with a pad, use these habits:
 
 **A tailgate pad protects the truck; how you load protects the bike.** Remove the battery, alternate handlebars, and strap wheels — every trip, without exception.
 
-For OEM protective covers and transport accessories, visit autobean.en.alibaba.com.
+For OEM protective covers and transport accessories, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

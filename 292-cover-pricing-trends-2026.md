@@ -50,4 +50,4 @@ Price transparency separates real factories from trading houses: a supplier that
 
 ## JK Corp Pricing Transparency
 
-JK Corp publishes fabric specs with pricing, so buyers compare apples to apples on cover pricing trends 2026. For transparent quotes, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp publishes fabric specs with pricing, so buyers compare apples to apples on cover pricing trends 2026. For transparent quotes, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -68,4 +68,4 @@ For outdoor parking, absolutely. One cover protects more value than almost any o
 
 Measure your bike, choose fabric by where you park, and always cover a cool, dry motorcycle. The right cover makes a bike look new for years.
 
-For OEM motorcycle covers in every size, visit autobean.en.alibaba.com.
+For OEM motorcycle covers in every size, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

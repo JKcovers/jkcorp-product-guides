@@ -49,4 +49,4 @@ For manufacturers who cannot travel, digital showrooms, Alibaba live rooms, and 
 
 ## JK Corp at Trade Events
 
-JK Corp exhibits covers, samples, and capability documentation for OEM and private label buyers worldwide. To meet JK Corp at the next cover trade show or start a deal today, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp exhibits covers, samples, and capability documentation for OEM and private label buyers worldwide. To meet JK Corp at the next cover trade show or start a deal today, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

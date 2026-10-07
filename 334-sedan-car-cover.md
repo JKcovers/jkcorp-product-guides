@@ -52,4 +52,4 @@ Expect to wash the cover every 2-3 months and re-treat waterproofing yearly. A s
 
 ## JK Corp Sedan Cover OEM
 
-JK Corp manufactures sedan car covers from 210D to 600D with mirror pockets, antenna pockets, breathable panels, and custom logo programs. For a sedan car cover quote, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures sedan car covers from 210D to 600D with mirror pockets, antenna pockets, breathable panels, and custom logo programs. For a sedan car cover quote, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -79,4 +79,4 @@ Ask your OEM supplier for the certification documents — reputable factories pr
 - Retail buyers who want the same performance with a lower footprint
 - Anyone replacing a conventional cover who prefers renewable inputs at a small premium
 
-For OEM recycled fabric car covers with GRS certification options, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM recycled fabric car covers with GRS certification options, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

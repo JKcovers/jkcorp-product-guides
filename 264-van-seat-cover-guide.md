@@ -77,4 +77,4 @@ For camper conversions with swivel seats and modified interiors, universal cover
 
 Work vans sell on interior condition. A van with torn, stained seats sells for thousands less than one with clean upholstery. A set of seat covers protects the factory interior completely — when you sell, the seats underneath look almost new.
 
-For OEM van seat covers for work and adventure, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM van seat covers for work and adventure, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

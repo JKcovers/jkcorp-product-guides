@@ -52,4 +52,4 @@ Quality covers combine an elastic hem with 2-4 tie-down straps.
 
 ## JK Corp Wind-Ready Covers
 
-JK Corp manufactures covers with reinforced hem channels, grommets, and multi-point strap systems for cars, trucks, and SUVs. For car cover wind protection built in, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures covers with reinforced hem channels, grommets, and multi-point strap systems for cars, trucks, and SUVs. For car cover wind protection built in, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

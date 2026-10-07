@@ -42,4 +42,4 @@ A typical 2-day factory visit covers: fabric mill and coating line (day 1 mornin
 
 ## JK Corp: A Ningbo-Style Partner
 
-JK Corp follows the Ningbo model of integrated production: fixed fabric sources, in-house cutting and sewing, documented QC, and FOB export programs for OEM and private label buyers. For the Ningbo cover industry advantage without the travel, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp follows the Ningbo model of integrated production: fixed fabric sources, in-house cutting and sewing, documented QC, and FOB export programs for OEM and private label buyers. For the Ningbo cover industry advantage without the travel, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

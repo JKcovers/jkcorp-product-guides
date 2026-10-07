@@ -64,4 +64,4 @@ Boats, campers, and vehicles parked away from power outlets can maintain batteri
 
 A solar car cover makes sense when your car parks in the sun for days at a time and you need battery maintenance or ventilation without grid power. For most daily drivers, it is a premium extra — but for stored vehicles, it is genuinely useful.
 
-For OEM solar-compatible car covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM solar-compatible car covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

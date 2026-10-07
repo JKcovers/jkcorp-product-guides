@@ -47,4 +47,4 @@ Typical OEM cover programs run 30-60 days for production after sample approval, 
 
 ## JK Corp's Integrated Supply Chain
 
-JK Corp operates cutting, sewing, and finishing lines with fixed fabric sources, covering the full protective cover supply chain from material to export. To audit the chain yourself, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp operates cutting, sewing, and finishing lines with fixed fabric sources, covering the full protective cover supply chain from material to export. To audit the chain yourself, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

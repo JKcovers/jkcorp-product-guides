@@ -66,4 +66,4 @@ Covers in long storage get nibbled by rodents, attacked by moths, or damaged by 
 
 **Clean, dry, cool, dark, breathable, and uncompressed.** Follow that and a quality cover will still protect after years in storage.
 
-For OEM car covers built to last — and storage bags included — visit autobean.en.alibaba.com.
+For OEM car covers built to last — and storage bags included — visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

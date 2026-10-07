@@ -50,4 +50,4 @@ Most covers fall under HS Chapter 63 (made-up textile articles), typically 6307.
 
 ## JK Corp Export Compliance Support
 
-JK Corp supplies textile covers with origin labeling, test reports, and documentation support for US, EU, and other export markets. For textile cover export regulations handled in practice, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies textile covers with origin labeling, test reports, and documentation support for US, EU, and other export markets. For textile cover export regulations handled in practice, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

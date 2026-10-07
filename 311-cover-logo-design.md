@@ -66,4 +66,4 @@ Before sending logo files to suppliers, know your rights and the supplier's usag
 
 **Simple, bold, high-contrast, and tested on real fabric.** A cover logo that follows these rules becomes a brand asset, not just decoration.
 
-For OEM cover manufacturers with professional logo reproduction, visit autobean.en.alibaba.com.
+For OEM cover manufacturers with professional logo reproduction, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

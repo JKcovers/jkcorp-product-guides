@@ -49,4 +49,4 @@ Pop-up covers are sized by the lowered dimensions. A cover for a towable trailer
 
 **Cover dry, cover clean, and let the fabric breathe.** The cover protects the camper — but only if you protect the cover from moisture trapped underneath.
 
-For OEM pop-up camper covers and trailer covers, visit autobean.en.alibaba.com.
+For OEM pop-up camper covers and trailer covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

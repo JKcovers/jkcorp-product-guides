@@ -68,4 +68,4 @@ For year-round outdoor furniture, yes. Premium fabric lasts twice as long as bud
 
 Measure each piece, buy by shape and climate, use elastic or strap anchoring, and cover dry furniture. The right covers keep a patio set looking new for years.
 
-For OEM outdoor furniture covers in every size, visit autobean.en.alibaba.com.
+For OEM outdoor furniture covers in every size, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

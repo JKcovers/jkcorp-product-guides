@@ -63,4 +63,4 @@ It is not a car alarm or immobilizer — it is a deterrent layer that makes your
 - Fleet vehicles in open lots
 - High-theft urban areas
 
-For OEM car covers with integrated remote lock security, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers with integrated remote lock security, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

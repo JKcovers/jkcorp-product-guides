@@ -64,4 +64,4 @@ In humid climates, static is less of an issue and a standard cover may be suffic
 - Classic and show cars where paint condition is critical
 - Long-term seasonal storage
 
-For OEM anti-static car covers with conductive fiber construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM anti-static car covers with conductive fiber construction, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.
