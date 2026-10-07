@@ -45,4 +45,4 @@ Measure your mower's **length, width and height**, including the handlebar and g
 
 ## OEM Lawn Mower Covers from JK Corp
 
-JK Corp manufactures custom lawn mower covers for push, self-propelled and ride-on mowers in waterproof 420D and 600D Oxford with elastic hems and private-label branding. For wholesale lawn mower covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures custom lawn mower covers for push, self-propelled and ride-on mowers in waterproof 420D and 600D Oxford with elastic hems and private-label branding. For wholesale lawn mower covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

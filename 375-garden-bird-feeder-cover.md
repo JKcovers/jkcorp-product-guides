@@ -49,4 +49,4 @@ Bird feeders and garden supplies sit outside year-round, where rain soaks the se
 
 ## OEM Garden Cover Solutions from JK Corp
 
-JK Corp supplies custom bird feeder covers, frost blankets, planter covers and garden storage bags in waterproof and insulated fabrics with private-label branding. For wholesale garden and outdoor covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies custom bird feeder covers, frost blankets, planter covers and garden storage bags in waterproof and insulated fabrics with private-label branding. For wholesale garden and outdoor covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

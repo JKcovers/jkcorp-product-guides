@@ -46,4 +46,4 @@ Measure the **length and width of your firewood rack**, and the **stack height**
 
 ## OEM Firewood Rack Covers from JK Corp
 
-JK Corp manufactures custom firewood rack covers in waterproof 600D Oxford with elastic hems, tie-down straps and private-label branding. For wholesale firewood and outdoor storage covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures custom firewood rack covers in waterproof 600D Oxford with elastic hems, tie-down straps and private-label branding. For wholesale firewood and outdoor storage covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

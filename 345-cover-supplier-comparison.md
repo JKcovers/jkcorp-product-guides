@@ -51,4 +51,4 @@ Buying car covers, boat covers, or motorcycle covers in volume comes down to one
 
 ## JK Corp as an OEM Partner
 
-JK Corp is an experienced OEM manufacturer of car, boat, and motorcycle covers, with in-house fabric sourcing, full QC processes, custom branding, and flexible MOQs for distributors. To compare us against your current cover supplier, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp is an experienced OEM manufacturer of car, boat, and motorcycle covers, with in-house fabric sourcing, full QC processes, custom branding, and flexible MOQs for distributors. To compare us against your current cover supplier, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

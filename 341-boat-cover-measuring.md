@@ -50,4 +50,4 @@ Universal covers fit broad size ranges but sag on odd hull shapes. Custom covers
 
 ## JK Corp Custom Boat Covers
 
-JK Corp manufactures custom boat covers from real hull measurements, covering trailerable, mooring, and winter storage styles. For boat cover measurement support and OEM production, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures custom boat covers from real hull measurements, covering trailerable, mooring, and winter storage styles. For boat cover measurement support and OEM production, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

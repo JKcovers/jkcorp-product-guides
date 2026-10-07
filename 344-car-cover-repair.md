@@ -52,4 +52,4 @@ Patching restores structure, but the coating still wears with age. Re-treat the 
 
 ## JK Corp Cover Quality
 
-JK Corp manufactures durable car covers from 190T dust covers to 600D heavy-duty outdoor models, with reinforced seams and custom branding for distributors. For a car cover that is built to last, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures durable car covers from 190T dust covers to 600D heavy-duty outdoor models, with reinforced seams and custom branding for distributors. For a car cover that is built to last, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

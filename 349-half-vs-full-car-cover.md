@@ -55,4 +55,4 @@ Half covers cost roughly 40-60% of a full cover, which makes them the rational f
 - Full covers are the only complete protection for storage and outdoor parking
 - Match the cover to the parking habit, not the car
 
-For OEM half and full car covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM half and full car covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

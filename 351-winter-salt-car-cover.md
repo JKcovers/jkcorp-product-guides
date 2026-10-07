@@ -41,4 +41,4 @@ Salt protection needs both layers. Undercoating (spray-on or applied) defends th
 - Waterproof outer + soft inner + sealed seams are the salt-season specs
 - Cover at night, wash weekly — covers complement, not replace, washing
 
-For OEM winter car covers built for salt regions, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM winter car covers built for salt regions, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

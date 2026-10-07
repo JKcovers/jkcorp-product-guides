@@ -59,4 +59,4 @@ Custom full-fit printed car covers are an OEM product where honesty about patter
 
 ---
 
-*Ningbo Jiangbei JK Auto Accessory Co., Ltd. is an ISO 9001 certified OEM manufacturer of protective covers with 19 years of experience, producing full-fit custom printed car covers, car covers, motorcycle covers, boat covers, furniture covers, pet seat covers and custom sewing products. Start at autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.*
+*Ningbo Jiangbei JK Auto Accessory Co., Ltd. is an ISO 9001 certified OEM manufacturer of protective covers with 19 years of experience, producing full-fit custom printed car covers, car covers, motorcycle covers, boat covers, furniture covers, pet seat covers and custom sewing products. Start at autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.*

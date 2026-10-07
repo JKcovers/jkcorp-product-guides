@@ -45,4 +45,4 @@ Trampoline covers are sized by **frame diameter** — common sizes are 8 ft, 10 
 
 ## OEM Trampoline Covers from JK Corp
 
-JK Corp supplies custom trampoline covers in UV-stabilized 420D and 600D Oxford with elastic hems, strap systems and private-label packaging. For wholesale trampoline and outdoor covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies custom trampoline covers in UV-stabilized 420D and 600D Oxford with elastic hems, strap systems and private-label packaging. For wholesale trampoline and outdoor covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

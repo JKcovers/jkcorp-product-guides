@@ -51,4 +51,4 @@ In extreme storms, the best move is sometimes no cover. If a blizzard dumps more
 - Pole-supported covers shed snow automatically; flat covers require manual clearing
 - In heavy snow regions, buy fabric 600D+, poles, and reinforced grommets
 
-For OEM snow-rated car covers with pole support and 600D fabric, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM snow-rated car covers with pole support and 600D fabric, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

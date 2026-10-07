@@ -53,4 +53,4 @@ Pass the cable through two grommets on the driver's side, loop it around the fro
 - Buy covers with reinforced, evenly spaced grommets
 - Two locks (front and rear wheels) for long-term outdoor parking
 
-For OEM car covers with reinforced grommets and cable lock compatibility, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers with reinforced grommets and cable lock compatibility, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

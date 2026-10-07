@@ -51,4 +51,4 @@ A matte clear coat is full of microscopic texture that scatters light. That text
 - Fit matters as much as fabric: a snug cover protects, a baggy one damages
 - One scratch burn costs more than a quality cover; protect the finish
 
-For OEM matte-safe car covers with soft inner lining, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM matte-safe car covers with soft inner lining, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

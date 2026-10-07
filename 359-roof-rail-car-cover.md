@@ -48,4 +48,4 @@ Rails are painted and scratched just like bodywork. The cover's rail pockets sho
 - Removable crossbars should come off for storage
 - Size over the highest point, then add clearance
 
-For OEM car covers with padded roof rail pockets, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers with padded roof rail pockets, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

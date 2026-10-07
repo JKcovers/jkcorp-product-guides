@@ -54,4 +54,4 @@ Full covers protect more, but they cost 20 minutes a day of install and removal,
 - Reflective fabric cuts cockpit temps between sessions
 - Lightweight, soft-lined, heat-tolerant — that is the track spec
 
-For OEM lightweight track day car covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM lightweight track day car covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

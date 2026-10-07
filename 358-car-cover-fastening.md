@@ -60,4 +60,4 @@ Replace worn fastenings before the cover itself wears. On many OEM covers, strap
 - Straps beat elastic in wind; elastic beats straps in speed
 - A combination system (hem + straps + clips) covers every scenario
 
-For OEM car covers with elastic hems, wind straps, and clip options, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers with elastic hems, wind straps, and clip options, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

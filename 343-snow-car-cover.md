@@ -47,4 +47,4 @@ For long winter storage, add a breathable panel and check the cover weekly. Snow
 
 ## JK Corp Winter Cover Range
 
-JK Corp manufactures snow-rated car covers with 420D-600D waterproof fabric, wind strap systems, soft linings, and custom branding for distributors. For a snow car cover for your fleet or brand, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures snow-rated car covers with 420D-600D waterproof fabric, wind strap systems, soft linings, and custom branding for distributors. For a snow car cover for your fleet or brand, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

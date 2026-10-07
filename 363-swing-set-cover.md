@@ -40,4 +40,4 @@ Look for **reinforced corners**, **double-stitched seams** and **elastic hem or 
 
 ## OEM Swing Set Covers from JK Corp
 
-JK Corp manufactures custom swing set covers in heavy-duty 420D and 600D Oxford with elastic hems, tie-down straps and private-label branding. For wholesale playset and outdoor equipment covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures custom swing set covers in heavy-duty 420D and 600D Oxford with elastic hems, tie-down straps and private-label branding. For wholesale playset and outdoor equipment covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

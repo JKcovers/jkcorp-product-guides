@@ -54,4 +54,4 @@ A dedicated bag beats a cardboard box (which wicks moisture) and beats an open s
 - Never store a damp cover; dry, fold, then bag
 - A matching cover-and-bag set lasts longer and packages better for retail
 
-For OEM car covers with matching storage bags and carry cases, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers with matching storage bags and carry cases, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

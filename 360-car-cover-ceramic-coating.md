@@ -47,4 +47,4 @@ For storage beyond two weeks, combine the cover with proper prep: wash and dry t
 - Cleanliness beats fabric choice: rinse the car, wash the cover
 - Soft-lined, breathable, well-fitted covers are safe for coated paint
 
-For OEM soft-lined car covers compatible with ceramic coatings, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM soft-lined car covers compatible with ceramic coatings, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

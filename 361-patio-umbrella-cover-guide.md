@@ -44,4 +44,4 @@ Measure the canopy diameter **while the umbrella is fully open**, from one edge 
 
 ## OEM Patio Umbrella Covers from JK Corp
 
-JK Corp manufactures custom patio umbrella covers in UV-treated polyester and heavy-duty 600D Oxford with drawstring hems, vented designs and private-label packaging. For wholesale patio umbrella covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures custom patio umbrella covers in UV-treated polyester and heavy-duty 600D Oxford with drawstring hems, vented designs and private-label packaging. For wholesale patio umbrella covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

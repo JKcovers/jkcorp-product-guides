@@ -54,4 +54,4 @@ Scooters range from 50cc commuters to 300cc maxi-scooters. Measure length (bumpe
 
 ## JK Corp Scooter Cover OEM
 
-JK Corp manufactures scooter covers with heat-shield linings, elastic hems, lock loops, and custom printing for scooter brands and distributors. For a scooter cover wholesale program, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures scooter covers with heat-shield linings, elastic hems, lock loops, and custom printing for scooter brands and distributors. For a scooter cover wholesale program, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -44,4 +44,4 @@ Measure the **overall length from nozzle tip to handle** and the **widest point*
 
 ## OEM Leaf Blower Covers from JK Corp
 
-JK Corp supplies custom leaf blower covers in waterproof 420D and 600D Oxford with elastic hems, plus tailored storage bags for power tools. For wholesale tool and equipment covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies custom leaf blower covers in waterproof 420D and 600D Oxford with elastic hems, plus tailored storage bags for power tools. For wholesale tool and equipment covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

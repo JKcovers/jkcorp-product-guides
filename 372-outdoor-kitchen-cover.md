@@ -46,4 +46,4 @@ Measure the **full length of the kitchen island**, the **depth from front to bac
 
 ## OEM Outdoor Kitchen Covers from JK Corp
 
-JK Corp manufactures custom outdoor kitchen covers in waterproof 420D and 600D Oxford with drawstring hems, ventilation panels and private-label branding. For wholesale outdoor kitchen covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures custom outdoor kitchen covers in waterproof 420D and 600D Oxford with drawstring hems, ventilation panels and private-label branding. For wholesale outdoor kitchen covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

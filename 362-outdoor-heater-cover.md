@@ -45,4 +45,4 @@ Measure the **height from the base to the top of the reflector**, and the **wide
 
 ## OEM Outdoor Heater Covers from JK Corp
 
-JK Corp supplies custom outdoor heater covers for freestanding, tabletop and wall-mounted units in waterproof 600D Oxford with elastic hems and private-label branding. For wholesale patio heater covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies custom outdoor heater covers for freestanding, tabletop and wall-mounted units in waterproof 600D Oxford with elastic hems and private-label branding. For wholesale patio heater covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

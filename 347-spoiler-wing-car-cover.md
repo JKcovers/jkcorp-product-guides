@@ -38,4 +38,4 @@ Where you park changes how the wing interacts with the cover. Facing into the pr
 
 Spoiler cars need covers with extra rear depth, stretch sections, and padded contact points. Generic covers tear; tailored covers last years.
 
-For OEM car covers designed for spoilers and wings, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers designed for spoilers and wings, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

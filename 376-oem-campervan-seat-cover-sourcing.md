@@ -40,4 +40,4 @@ A manufacturer actively developing campervan programs will usually name the plat
 
 ---
 
-For ISO 9001 certified OEM manufacturing of custom campervan and motorhome seat covers — from single prototypes to full production runs with custom logo, color, material and packaging — contact JK Corp (Ningbo Jiangbei JK Auto Accessory Co., Ltd.). Start at autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For ISO 9001 certified OEM manufacturing of custom campervan and motorhome seat covers — from single prototypes to full production runs with custom logo, color, material and packaging — contact JK Corp (Ningbo Jiangbei JK Auto Accessory Co., Ltd.). Start at autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -41,4 +41,4 @@ Motorized covers roll out at the touch of a button. They combine heat retention,
 
 ## Pool Cover Sourcing for Professionals
 
-JK Corp supplies wholesale pool covers, winter covers and custom outdoor covers for resellers and distributors. For OEM pool cover programs and bulk pricing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies wholesale pool covers, winter covers and custom outdoor covers for resellers and distributors. For OEM pool cover programs and bulk pricing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

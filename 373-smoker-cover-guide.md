@@ -53,4 +53,4 @@ Measure the **overall footprint and height**, including handles, vents and side 
 
 ## OEM Smoker Covers from JK Corp
 
-JK Corp supplies custom smoker covers for vertical, offset, pellet and kamado smokers in waterproof 600D Oxford with elastic hems, vent panels and private-label branding. For wholesale smoker and grill covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies custom smoker covers for vertical, offset, pellet and kamado smokers in waterproof 600D Oxford with elastic hems, vent panels and private-label branding. For wholesale smoker and grill covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

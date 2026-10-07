@@ -52,4 +52,4 @@ If mildew appears: wash with mild soap and diluted vinegar (1:4), rinse thorough
 - Air-fluff drying is the only machine option; heat ruins coatings
 - Mildew is preventable: a dry cover never molds
 
-For OEM car covers with quick-drying, mildew-resistant fabrics, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers with quick-drying, mildew-resistant fabrics, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

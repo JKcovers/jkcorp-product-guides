@@ -52,4 +52,4 @@ Frost is a daily nuisance in cold climates: scraping ice off windshields, thawin
 - A full cover beats a windshield-only cover in hard frost regions
 - Install in the evening, remove dry — a wet cover refreezes
 
-For OEM frost protection car covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM frost protection car covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

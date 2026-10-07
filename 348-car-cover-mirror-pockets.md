@@ -59,4 +59,4 @@ Fixed antennas are the classic tear point. Covers should either have a padded an
 - Boxed, reinforced mirror pockets prevent the most common tear points
 - Match the antenna solution to your actual antenna type
 
-For OEM car covers with reinforced mirror pockets and antenna options, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers with reinforced mirror pockets and antenna options, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

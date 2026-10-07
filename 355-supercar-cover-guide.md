@@ -47,4 +47,4 @@ A quality supercar cover costs less than one paint correction session. For six-f
 - Garage storage beats any outdoor cover arrangement
 - Handle covers like you handle the car: clean hands, no dragging
 
-For OEM supercar covers with cotton lining and tailored fit, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM supercar covers with cotton lining and tailored fit, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

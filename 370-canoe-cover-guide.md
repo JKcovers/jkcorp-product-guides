@@ -47,4 +47,4 @@ Measure the **overall length** (e.g., 12 ft, 14 ft, 16 ft) and the **maximum wid
 
 ## OEM Canoe Covers from JK Corp
 
-JK Corp supplies custom canoe covers, cockpit covers and storage bags in UV-stabilized 600D Oxford with elastic hems, straps and private-label branding. For wholesale canoe and watercraft covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp supplies custom canoe covers, cockpit covers and storage bags in UV-stabilized 600D Oxford with elastic hems, straps and private-label branding. For wholesale canoe and watercraft covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -46,4 +46,4 @@ Measure the board's **overall length** (e.g., 10 ft 6 in, 11 ft) and **maximum w
 
 ## OEM Paddleboard Covers from JK Corp
 
-JK Corp manufactures custom paddleboard covers and iSUP bags in UV-stabilized 600D Oxford with padded linings, zippers and private-label branding. For wholesale paddleboard and watersport covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures custom paddleboard covers and iSUP bags in UV-stabilized 600D Oxford with padded linings, zippers and private-label branding. For wholesale paddleboard and watersport covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

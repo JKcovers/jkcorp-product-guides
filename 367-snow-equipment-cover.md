@@ -46,4 +46,4 @@ Measure the **width across the auger housing**, the **total height to the top of
 
 ## OEM Snow Equipment Covers from JK Corp
 
-JK Corp manufactures custom snow equipment covers, shovel sleeves and snow thrower covers in waterproof 600D Oxford with elastic hems and private-label branding. For wholesale winter equipment covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp manufactures custom snow equipment covers, shovel sleeves and snow thrower covers in waterproof 600D Oxford with elastic hems and private-label branding. For wholesale winter equipment covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.
