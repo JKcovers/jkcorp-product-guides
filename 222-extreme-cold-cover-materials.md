@@ -58,4 +58,4 @@ The coating matters more than the base fabric. PU coatings survive cold far bett
 
 For owners in the northern US, Canada, Scandinavia, or high-altitude regions, the difference between a cheap cover and a cold-spec cover is measured in months, not years. If your storage season sees sustained temperatures below -20°C, specify TPU coating, cold-rated tape, and metal hardware.
 
-For OEM extreme cold car cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM extreme cold car cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

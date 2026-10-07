@@ -66,4 +66,4 @@ Aluminum boats are often trailered uncovered for simplicity, but covered trailer
 - Inspect rivet contact areas for fabric wear
 - Store dry to prevent mildew
 
-For OEM aluminum boat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM aluminum boat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

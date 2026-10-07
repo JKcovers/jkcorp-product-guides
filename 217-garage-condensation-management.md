@@ -62,4 +62,4 @@ Some buyers think a sealed "garage cover" protects better indoors. The opposite 
 - **Winter** — cold surfaces + heated garage = heavy condensation; run the dehumidifier
 - **Summer** — keep the garage closed during humid days, ventilate at night
 
-For OEM breathable garage car covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM breathable garage car covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

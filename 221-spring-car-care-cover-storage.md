@@ -73,4 +73,4 @@ Take a 20-30 minute drive to warm everything up, circulate fluids, and let the a
 - **Flat-spotted tires** — drive 50-100 km on highways to round them out; severe cases need replacement
 - **Battery won't hold charge** — replace it; a sulfated battery never recovers fully
 
-For OEM car covers for every season, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM car covers for every season, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

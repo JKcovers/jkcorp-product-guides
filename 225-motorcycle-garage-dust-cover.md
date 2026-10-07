@@ -48,4 +48,4 @@ Wipe the bike down, dry the exhaust and chain, then fit the cover. Every few wee
 
 If the garage is unheated and humid, pair the dust cover with a battery tender and a light coat of protective wax on exposed metal. The cover protects from dust; climate control protects from corrosion.
 
-For OEM motorcycle garage dust cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle garage dust cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

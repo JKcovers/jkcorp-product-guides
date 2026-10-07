@@ -40,4 +40,4 @@ Sport bike covers pick up brake dust and fuel mist quickly. Machine-wash on a ge
 
 If the cover shows wear at the windscreen point or the exhaust side, replace it. Sport bike fairings are too expensive to risk on a tired cover.
 
-For OEM sport bike cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM sport bike cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

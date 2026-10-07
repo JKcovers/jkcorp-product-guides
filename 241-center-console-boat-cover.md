@@ -57,4 +57,4 @@ Center console covers designed for trailering need extra reinforcement:
 
 Clean with marine cover cleaner, re-treat with water repellent before each season, and inspect seams and grommets after every storm. The T-top contact points wear fastest — pad them before they rub through.
 
-For OEM center console boat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM center console boat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

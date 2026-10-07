@@ -52,4 +52,4 @@ Keep the cover clean — dirt holds moisture and accelerates coating loss. Store
 
 If the base fabric is cracked, the seams are fraying, or the lining has degraded, re-treatment will not save it. A cover that absorbs water weighs down on the bike and scratches the paint. Replace it before the next wet season.
 
-For OEM motorcycle cover waterproofing sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle cover waterproofing sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

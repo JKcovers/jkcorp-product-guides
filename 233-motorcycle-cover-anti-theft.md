@@ -58,4 +58,4 @@ Most insurers require at least one approved lock for theft coverage, and a chain
 
 The cover starts the defense, the locks finish it. Layer them, anchor the bike, and hide the tracker — then the bike becomes the one thieves skip.
 
-For OEM motorcycle cover anti-theft sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle cover anti-theft sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

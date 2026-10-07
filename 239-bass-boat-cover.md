@@ -57,4 +57,4 @@ Many bass owners trailer with the cover on. For towing:
 
 Clean with boat cover cleaner, re-apply DWR treatment annually, and never store the cover damp. Inspect seams after each season — seams fail first on bass boat covers because of the tight fit around decks.
 
-For OEM bass boat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM bass boat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -63,4 +63,4 @@ A breathable motorcycle cover is critical. Even indoors, temperature swings crea
 
 Once a month, uncover the bike in a dry garage, check for rust or moisture, and re-cover it. This 10-minute habit catches problems early and keeps the cover from holding condensation against the paint.
 
-For OEM motorcycle winter storage covers, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle winter storage covers, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -47,4 +47,4 @@ Seat covers should be UV-resistant and waterproof with an elastic hem that grips
 
 Buy the cover that matches the threat. If the seat is the problem, a seat cover is enough. If the whole bike is exposed, a full cover is the investment that protects thousands of dollars of machinery.
 
-For OEM motorcycle seat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle seat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

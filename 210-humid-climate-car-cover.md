@@ -65,4 +65,4 @@ Store the cover dry, loose, in a ventilated bag. Never store it damp or folded t
 
 Remember the rule: if the cover is on, moisture must be able to get out. A cover that cannot breathe in a humid climate will eventually create the very problem it is meant to prevent.
 
-For OEM humid climate and mildew-resistant car cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM humid climate and mildew-resistant car cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -51,4 +51,4 @@ Wash mirror covers with the rest of your motorcycle accessories — machine-wash
 
 Mirror covers cost little, pack small, and protect the most exposed parts of the bike. Add them to any storage or touring setup.
 
-For OEM motorcycle mirror cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle mirror cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

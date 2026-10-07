@@ -76,4 +76,4 @@ Fishing kayaks have scupper holes that let water drain — make sure the cover d
 
 ## The Bottom Line
 
-A $30-60 kayak cover protects a $1,000+ fishing rig. For OEM fishing kayak cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+A $30-60 kayak cover protects a $1,000+ fishing rig. For OEM fishing kayak cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

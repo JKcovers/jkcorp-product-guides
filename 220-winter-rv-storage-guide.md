@@ -67,4 +67,4 @@ A cover alone cannot carry deep snow. Install roof supports (inflatable or rigid
 - Inspect the cover for mildew or tears; clean and dry it before storing
 - Check all seals for damage from winter movement
 
-For OEM RV covers and winter storage solutions, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM RV covers and winter storage solutions, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

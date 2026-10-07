@@ -88,4 +88,4 @@ The cover's off-season (summer) is when most covers get ruined:
 - Mildew has penetrated the fibers
 - Elastic is permanently stretched
 
-For OEM boat covers built for winter storage, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM boat covers built for winter storage, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

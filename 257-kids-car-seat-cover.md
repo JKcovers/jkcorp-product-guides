@@ -76,4 +76,4 @@ Many families choose a vinyl-style cover for the base (where spills land) and a 
 
 **How often should I replace it?** With daily family use, plan on 2-3 years, or sooner if the waterproof backing stops working.
 
-For OEM family seat covers with waterproof backing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM family seat covers with waterproof backing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

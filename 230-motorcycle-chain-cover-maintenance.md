@@ -53,4 +53,4 @@ Twice a year, do a deeper service: remove the chain guard and clean behind it, i
 
 Chain care and cover care belong together — do both at the same time, and neither gets forgotten. A lubed chain and a clean cover mean a bike that is ready to ride after months of storage.
 
-For OEM motorcycle chain cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle chain cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

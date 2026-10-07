@@ -43,4 +43,4 @@ Adventure riders burn through covers faster than anyone else. 600D Oxford with a
 
 An adventure bike cover is a touring tool, not a parking accessory. Buy for the widest accessory configuration, check the fit with luggage mounted, and replace the moment seams show wear.
 
-For OEM adventure bike cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM adventure bike cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

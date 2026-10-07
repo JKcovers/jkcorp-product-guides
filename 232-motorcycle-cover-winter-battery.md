@@ -53,4 +53,4 @@ If the cover has no vent opening, route the tender lead through the hem and secu
 
 When the season returns, disconnect the tender, charge fully, and ride. A battery stored on a maintainer usually fires the bike on the first try — the entire point of the winter setup.
 
-For OEM motorcycle cover for winter battery sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle cover for winter battery sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

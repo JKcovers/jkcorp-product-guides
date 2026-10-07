@@ -80,4 +80,4 @@ Winterization is the difference between a boat that starts in spring and a boat 
 - Look for signs of animals getting under the cover
 - In mild spells, air out the cabin if accessible
 
-For OEM boat winter covers and winterization sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM boat winter covers and winterization sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

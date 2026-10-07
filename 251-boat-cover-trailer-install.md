@@ -67,4 +67,4 @@ Support poles prevent water pooling on flat spans:
 - Inspect seams and contact points while it's off
 - Clean and treat before storage
 
-For OEM boat cover and trailer fit sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM boat cover and trailer fit sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

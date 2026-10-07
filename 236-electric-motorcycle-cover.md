@@ -54,4 +54,4 @@ An e-moto needs the same wash-care as any bike, plus port checks: after washing,
 
 An electric motorcycle cover protects the three expensive things on an e-moto: the battery, the charging system, and the electronics. Choose breathable waterproofing and charging access, and the EV stays healthy through any season.
 
-For OEM electric motorcycle cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM electric motorcycle cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

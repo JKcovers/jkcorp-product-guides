@@ -60,4 +60,4 @@ A mast collar seals the cover around the mast so rain and wind don't enter at th
 - Inspect the mast collar area regularly — it wears first
 - Repair small tears immediately; wind finds any weak point
 
-For OEM sailboat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM sailboat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

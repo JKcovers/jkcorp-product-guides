@@ -83,4 +83,4 @@ The premium marine standard:
 
 A cheap 300D cover might cost $50 but last one season outdoors. A 600D Oxford or acrylic cover costs $150-400 but lasts 5-10 seasons. The premium fabric is almost always cheaper per season — that's the math that matters.
 
-For OEM marine fabric sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM marine fabric sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

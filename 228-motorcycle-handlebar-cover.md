@@ -50,4 +50,4 @@ Neoprene is the premium choice — it stretches to fit, seals well, and shrugs o
 
 A handlebar cover protects the parts you touch every ride for the price of a tank of fuel. Add one to any parking or storage routine.
 
-For OEM motorcycle handlebar cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle handlebar cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

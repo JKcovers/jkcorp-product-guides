@@ -67,4 +67,4 @@ If you visit (or use a third-party audit):
 
 ## Audited Factories at JK Corp
 
-JK Corp is ISO 9001 certified, welcomes factory visits and live video tours, and shares production updates at every milestone. For an audited OEM cover factory with transparent QC, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+JK Corp is ISO 9001 certified, welcomes factory visits and live video tours, and shares production updates at every milestone. For an audited OEM cover factory with transparent QC, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -57,4 +57,4 @@ Owners who trailer long distances need both. The trailer cover also protects the
 
 ## The Bottom Line
 
-A jet ski trailer cover is inexpensive insurance for a trailer that costs hundreds to repair and thousands to replace. For OEM jet ski trailer cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+A jet ski trailer cover is inexpensive insurance for a trailer that costs hundreds to repair and thousands to replace. For OEM jet ski trailer cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

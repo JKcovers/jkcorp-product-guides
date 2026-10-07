@@ -67,4 +67,4 @@ Inflatable boats — from RIBs with rigid hulls to PVC and hypalon dinghies — 
 - Check the cover for chafe marks at tube contact points
 - Store the cover dry and unfolded
 
-For OEM inflatable boat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM inflatable boat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

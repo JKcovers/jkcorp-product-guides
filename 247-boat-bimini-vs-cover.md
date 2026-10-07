@@ -60,4 +60,4 @@ Most owners fold the bimini down and cover over it — but check the cover's fit
 
 ## The Bottom Line
 
-You don't have to choose — but if you're choosing, the boat cover protects your investment, while the bimini protects your passengers. For OEM bimini and boat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+You don't have to choose — but if you're choosing, the boat cover protects your investment, while the bimini protects your passengers. For OEM bimini and boat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

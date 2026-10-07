@@ -62,4 +62,4 @@ When hail is forecast:
 
 Key specs for a real hail cover: thick batting padding (not just fleece lining), waterproof outer shell, reinforced elastic hem, and a storage bag. Beware of covers marketed as "hail resistant" with only 2-3mm of padding — they protect against dust, not hail.
 
-For OEM hail protection car cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM hail protection car cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

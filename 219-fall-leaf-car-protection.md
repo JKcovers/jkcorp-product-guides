@@ -60,4 +60,4 @@ Key spec: a cover that sheds leaves. Textured or heavy covers hold leaves on top
 
 Once trees are bare and the first frost arrives, switch to the winter storage routine: wash, seal, and consider long-term storage treatment if the car will sit. The fall cover usually transitions directly — an all-weather cover that handled leaves handles snow with minor adjustments.
 
-For OEM all-weather car covers for fall protection, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM all-weather car covers for fall protection, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

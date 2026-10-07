@@ -68,4 +68,4 @@ Coastal boat storage is a humidity war. Salt air, fog, and persistent damp attac
 
 Inland, the enemy is dryness and UV. On the coast, the enemy is persistent moisture plus salt. Every storage decision — cover, ventilation, protection products — should be made with that difference in mind.
 
-For OEM marine-grade covers for coastal storage, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM marine-grade covers for coastal storage, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

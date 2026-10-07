@@ -68,4 +68,4 @@ After storm season:
 - Look for thinning fabric at contact points (mirrors, bumpers)
 - Replace straps immediately if frayed — a snapped strap in the next storm is a paint scratch
 
-For OEM wind-resistant car cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM wind-resistant car cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

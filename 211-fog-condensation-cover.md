@@ -60,4 +60,4 @@ In extreme coastal fog with constant drizzle, some owners choose a fully waterpr
 
 For fog and condensation, the cover is a climate-control system, not just a dust sheet. Breathability, ventilation, and a lined interior determine whether your car stays dry or becomes a mold experiment.
 
-For OEM breathable car cover solutions, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM breathable car cover solutions, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

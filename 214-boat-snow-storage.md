@@ -68,4 +68,4 @@ Never let snow rest directly on a flat cover span:
 - Let the boat dry before folding the cover
 - Store the cover clean and dry; a dirty damp cover will be unusable next winter
 
-For OEM boat winter covers and snow storage solutions, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM boat winter covers and snow storage solutions, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

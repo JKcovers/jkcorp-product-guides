@@ -64,4 +64,4 @@ For tires still mounted on wheels:
 4. Note the date on the bag — track how many seasons each set has served
 5. At the next changeover, inspect for cracking before mounting
 
-For OEM tire storage cover and bag sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM tire storage cover and bag sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

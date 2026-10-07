@@ -54,4 +54,4 @@ In summer, a lighter trike cover sheds dust and bird droppings. In winter, a hea
 
 Trike owners should buy a cover measured for three wheels, with mirror pockets and rear coverage. A correct fit protects thousands in bodywork — a wrong fit damages it.
 
-For OEM trike cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM trike cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

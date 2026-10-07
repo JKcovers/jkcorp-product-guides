@@ -53,4 +53,4 @@ Pickup covers collect mud, not just hair. Rinse the cover with a hose before mac
 
 If your dog rides daily, goes off-road, or swims regularly, treat the cover as a consumable and replace it every 2-3 years. A cheap cover that shifts and leaks will cost more in seat cleaning than a good cover costs upfront.
 
-For OEM pet seat covers fitted to pickup trucks, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM pet seat covers fitted to pickup trucks, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -69,4 +69,4 @@ For I/O boats, choose at least 420D for outdoor storage. The drive unit area is 
 - Inspect the drive pocket and seams regularly — this area fails first
 - Store the cover dry and folded loosely
 
-For OEM inboard/outboard boat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM inboard/outboard boat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

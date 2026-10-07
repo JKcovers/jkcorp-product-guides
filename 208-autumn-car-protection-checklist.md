@@ -65,4 +65,4 @@ Before the cover goes on for the last time this season:
 4. Set tire pressure 3-5 psi above normal for storage
 5. Fit the cover and secure all straps
 
-For OEM autumn and all-weather car cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM autumn and all-weather car cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

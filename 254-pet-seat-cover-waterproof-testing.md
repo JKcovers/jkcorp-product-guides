@@ -49,4 +49,4 @@ Wash the cover three times, then repeat the beading test. Covers without a prope
 - Include the seams and corners in your tests — that is where leaks start
 - Re-test after every third wash until you trust the cover
 
-For OEM pet seat covers with verified waterproof backing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM pet seat covers with verified waterproof backing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

@@ -52,4 +52,4 @@ A covered bike is easier for everyone to live with: it is clearly "in storage," 
 
 In a shared garage, the cover is a courtesy as much as a protection. Buy for soft lining and breathability, dry the bike first, and keep the cover tidy — the bike stays mint and the garage stays functional.
 
-For OEM motorcycle garage sharing cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle garage sharing cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

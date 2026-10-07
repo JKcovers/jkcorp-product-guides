@@ -55,4 +55,4 @@ When comparing covers, look for: the fabric denier, the coating type (PU/PVC/TPU
 
 UV testing data separates durable covers from one-season products. Compare standards, hours, and coating types — not slogans.
 
-For OEM motorcycle cover UV test sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM motorcycle cover UV test sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

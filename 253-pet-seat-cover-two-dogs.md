@@ -58,4 +58,4 @@ Choose a cover you can install and remove in under two minutes — you will do i
 
 Budget covers work for calm, well-groomed dogs. If your dogs shed heavily, swim, or ride daily, invest in a premium waterproof cover with reinforced stitching — it lasts three times longer and stays waterproof after repeated washes.
 
-For OEM pet seat covers built for two-dog households, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM pet seat covers built for two-dog households, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

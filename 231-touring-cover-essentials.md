@@ -47,4 +47,4 @@ At night stops, the cover's job is quick protection: dew, dust, and casual pryin
 
 For touring riders, the cover is daily equipment, not storage gear. Buy for packability and loaded fit, and treat it as part of the luggage system.
 
-For OEM touring cover essentials sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM touring cover essentials sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

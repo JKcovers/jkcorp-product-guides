@@ -70,4 +70,4 @@ Deck boats are frequently trailered with covers. For highway use:
 - Inspect the windshield base area and bow rail channels for wear
 - Store dry to prevent mildew
 
-For OEM deck boat cover sourcing, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM deck boat cover sourcing, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.

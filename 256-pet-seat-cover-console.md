@@ -62,4 +62,4 @@ Buying a seat cover and console cover as a set usually means:
 - Vacuum hair from the seams
 - Machine-wash if the label allows — console covers are smaller and dry quickly
 
-For OEM pet seat cover and console cover sets, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM pet seat cover and console cover sets, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.
