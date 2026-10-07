@@ -1,14 +1,10 @@
 # Car Cover Size Chart by Vehicle Type: Sedan, SUV, Truck, and More
 
-Finding the right car cover size doesn't have to be confusing. Whether you drive a compact sedan or a full-size pickup, here's a practical size chart organized by vehicle type to help you get the perfect fit every time.
+Finding the right car cover size doesn't have to be confusing. Whether you drive a compact sedan or a full-size pickup, here's a practical chart by vehicle type.
 
 ## How Car Cover Sizes Are Organized
 
-Most manufacturers categorize covers by three factors:
-
-1. **Vehicle class**: Sedan, SUV, Hatchback, Truck, Van
-2. **Overall length range**: Typically in 10-15 inch increments (e.g., 170-180 inches)
-3. **Width and height**: Generally standardized within each class but varies by manufacturer
+Most manufacturers categorize covers by vehicle class, then by overall length in 10-15 inch increments. Width and height are standardized within a class but vary between manufacturers.
 
 ## Sedan Car Cover Sizes
 
@@ -19,7 +15,7 @@ Most manufacturers categorize covers by three factors:
 | Large | 185-200 in (470-508 cm) | BMW 5 Series, Mercedes E-Class, Audi A6 |
 | X-Large | 200-215 in (508-546 cm) | Mercedes S-Class, BMW 7 Series, Lexus LS |
 
-**Sedan tip:** Always check mirror-to-mirror width. Some luxury sedans are unusually wide and may need a Large even if they're under 185 inches long.
+**Sedan tip:** Check mirror-to-mirror width. Some luxury sedans are unusually wide and may need a Large even under 185 inches long.
 
 ## SUV Car Cover Sizes
 
@@ -30,17 +26,21 @@ Most manufacturers categorize covers by three factors:
 | Large SUV | 190-210 in (483-533 cm) | Chevy Tahoe, Ford Expedition, Cadillac Escalade |
 | X-Large SUV | 210-230 in (533-584 cm) | Chevy Suburban, Ford Expedition Max |
 
-**SUV tip:** Height matters more for SUVs than sedans. If your SUV has a roof rack or raised suspension, add 4-6 inches to the nominal height when checking fit.
+**SUV tip:** Height matters more for SUVs. With a roof rack or raised suspension, add 4-6 inches to the nominal height.
 
 ## Truck Cover Sizes
 
-| Size | Bed Length | Overall Length | Fits Examples |
-|------|-----------|---------------|---------------|
-| Short Bed | 5.5-6 ft | 210-220 in | Ford F-150 SuperCrew, Ram 1500 |
-| Standard Bed | 6.5 ft | 220-235 in | Ford F-150 SuperCab, Chevy Silverado |
-| Long Bed | 8 ft | 235-250 in | Ford F-250, Ram 2500, heavy-duty models |
+Pickup covers are sized by overall length, bumper to bumper including the tailgate, and divide into five tiers:
 
-**Truck tip:** Truck covers are the trickiest to size. Measure from the front bumper to the rear bumper including the tailgate. If you have a toolbox, ladder rack, or tonneau cover, mention it to the manufacturer.
+| Tier | Overall Length | Fits Examples |
+|------|---------------|---------------|
+| T1 (PK-S) | 195-206 in (495-523 cm) | Tacoma Regular/Access Cab 6' bed, Colorado Extended Cab 6' bed |
+| T2 (PK-M) | 207-218 in (525-554 cm) | Tacoma Double Cab 5' bed, Ranger Crew Cab 5' bed, Jeep Gladiator |
+| T3 (PK-L) | 219-232 in (556-589 cm) | F-150 SuperCab 6.5' bed, Silverado 1500 Double Cab 6.5' bed, RAM 1500 Quad Cab |
+| T4 (PK-XL) | 233-248 in (592-630 cm) | F-150 SuperCrew 5.5' bed, Silverado 1500 Crew Cab 5.8', RAM 1500 Crew Cab 5'7" |
+| T5 (PK-XXL) | 249-268 in (632-680 cm) | F-150 SuperCrew 6.5' bed, Super Duty F-250 Crew Cab, RAM 2500 Crew Cab 8' |
+
+**Truck tip:** Measure bumper to bumper including the tailgate. Two trucks of the same length can still need different patterns, because a crew cab with a short bed and a regular cab with a long bed step down at different points. Bed length alone is not a sizing method. Full pattern dimensions for each tier are in our pickup truck cover guide.
 
 ## Hatchback and Compact Covers
 
@@ -59,14 +59,14 @@ Most manufacturers categorize covers by three factors:
 
 ## International Sizing Note
 
-If you're buying from an international supplier (China, India, etc.), always provide your measurements in both inches and centimeters. US and European vehicle dimensions can differ even for "same-name" models due to different market specifications.
+When buying from an international supplier, provide measurements in both inches and centimeters: US and European dimensions can differ even for same-name models.
 
 ## What If Your Car Falls Between Sizes?
 
-This is a common question. The rule of thumb: **size up, not down.** A cover that's slightly too long can be cinched with the elastic hem and straps. A cover that's too short won't cover your bumpers, which is a much bigger problem.
+Size up, not down. A cover slightly too long can be cinched with the hem and straps; one too short won't cover the bumpers or tailgate.
 
 ## Need a Custom Size?
 
-Most OEM manufacturers on Alibaba accept custom dimensions. Simply provide your vehicle's exact length, width, and height, and they'll produce a cover to your specifications. This is especially useful for vehicles with roof racks, spoilers, or non-standard bodywork.
+Most OEM manufacturers accept custom dimensions: provide the vehicle's exact length, width and height and the cover is produced to specification — useful for roof racks, spoilers or non-standard bodywork.
 
-For OEM semi-custom car covers with 99% UV protection and multi-layer Oxford construction, visit autobean.en.alibaba.com, or explore www.jkcovers.com and www.customfitprotection.com.
+For OEM semi-custom car covers with multi-layer Oxford construction and custom sizing across all vehicle classes, visit autobean.en.alibaba.com or coverabc.en.made-in-china.com, and explore www.jkcovers.com and www.customfitprotection.com.
