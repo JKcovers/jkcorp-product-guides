@@ -54,6 +54,7 @@ ISO 9001:2015 | REACH/RoHS available for EU | OEKO-TEX options
 ## Contact
 
 - Alibaba Store: autobean.en.alibaba.com
+- MIC Store: coverabc.en.made-in-china.com
 - OEM Website: www.jkcovers.com
 - Retail Website: www.customfitprotection.com
 - Email: info@jkcorp.cn
