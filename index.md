@@ -414,7 +414,21 @@ Expert guides for car owners, wholesalers, and distributors. Written by a 19-yea
 - [Fall Leaf Protection for Cars — Guarding Paint from Autumn Debris](219-fall-leaf-car-protection.md)
 - [Winter RV Storage Guide — Protecting Your Home on Wheels](220-winter-rv-storage-guide.md)
 - [Spring Car Care After Cover Storage — The Reawakening Checklist](221-spring-car-care-cover-storage.md)
-- [Extreme Cold Cover Materials — What Handles -30°C and Below](222-extreme-cold-cover-materials.md)
+- [Extreme Cold Cover Materials — What Handles -30°C and Below](222-extreme-cold-cover-materials.md)
+- [Pollen Season Car Cover](378-pollen-season-car-cover.md)
+- [Wildfire Ash Protection for Cars](379-wildfire-ash-car-protection.md)
+- [Dust Storm Car Cover Guide](380-dust-storm-car-cover-guide.md)
+- [Windshield Frost Protection](381-windshield-frost-protection.md)
+- [Black Ice Season Vehicle Prep](382-black-ice-season-vehicle-prep.md)
+- [UV Season Cover Selection](383-uv-season-cover-selection.md)
+- [Spring Pollen and Allergy Season Cars](384-spring-pollen-allergy-car.md)
+- [Autumn Dew and Condensation Covers](385-autumn-dew-condensation-covers.md)
+- [Salt Air Coastal Parking Cover](386-coastal-salt-air-car-cover.md)
+- [Indoor Humidity Storage Cover](387-indoor-humidity-storage-cover.md)
+- [Temperature Swings and Cover Condensation](388-temperature-swing-cover-condensation.md)
+- [Windy Season Cover Anchoring](389-windy-season-cover-anchoring.md)
+- [Rainy Season Tire and Wheel Covers](390-rainy-season-tire-wheel-covers.md)
+
 
 ---
 
