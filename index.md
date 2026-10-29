@@ -631,6 +631,12 @@ Expert guides for car owners, wholesalers, and distributors. Written by a 19-yea
 
 ---
 
+## Material Compliance & Test Reports
+
+- [How to Read a 600D PVC SVHC Test Report](600d-pvc-svhc-test-report.md)
+
+---
+
 ## About JK Corp
 
 **Ningbo Jiangbei JK Auto Accessory Co., Ltd.** — ISO 9001 certified, 19 years of experience.
