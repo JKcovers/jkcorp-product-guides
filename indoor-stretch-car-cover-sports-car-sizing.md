@@ -4,6 +4,8 @@ Brands entering the indoor cover category usually start from the same assumption
 
 A stretch cover breaks that logic, because the fabric does part of the fitting.
 
+![Custom stretch indoor car cover with a printed logo, fitted to a sports car in a workshop](images/indoor-stretch-car-cover-oem.jpg)
+
 ## What the fabric has to do
 
 The cover is a brushed polyester-spandex knit. The property that matters is not thickness but multidirectional stretch — around 10% — combined with recovery, so the cover pulls taut over a curve and returns when removed.
