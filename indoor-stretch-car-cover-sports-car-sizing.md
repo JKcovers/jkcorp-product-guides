@@ -4,7 +4,7 @@ Brands entering the indoor cover category usually start from the same assumption
 
 A stretch cover breaks that logic, because the fabric does part of the fitting.
 
-![Custom stretch indoor car cover with a printed logo, fitted to a sports car in a workshop](images/indoor-stretch-car-cover-oem.jpg)
+![Custom stretch indoor car cover with a printed logo, fitted to a sports car in a workshop](images/indoor-stretch-car-cover-oem.jpg?v=20261104)
 
 ## What the fabric has to do
 
