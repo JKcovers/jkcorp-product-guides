@@ -132,6 +132,21 @@ Expert guides for car owners, wholesalers, and distributors. Written by a 19-yea
 - [Container Shipping for Covers — How Many Fit](205-cover-container-shipping.md)
 - [Cover Return Rate Reduction](206-cover-return-rate-reduction.md)
 - [Cross-Border E-Commerce Covers on Amazon](207-amazon-car-cover-fba.md)
+- [Cover Factory Tour Checklist](436-cover-factory-tour-checklist.md)
+- [OEM vs ODM for Car Covers](437-oem-vs-odm-car-covers.md)
+- [Cover Supplier Negotiation Tactics](438-cover-supplier-negotiation.md)
+- [Payment Terms for Cover Orders: T/T vs L/C](439-cover-payment-terms-tt-lc.md)
+- [Third-Party Inspection for Car Covers](440-third-party-inspection-car-covers.md)
+- [CE and UKCA Marking for Car Covers](441-ce-ukca-car-covers.md)
+- [BSCI Audits for Cover Factories](442-bsci-audit-cover-factory.md)
+- [Export Packaging for Car Covers](443-export-packaging-car-covers.md)
+- [Why Custom Cover Sizes Carry a Different MOQ](444-custom-size-moq-car-covers.md)
+- [Building an OEM Cover Catalog That Sells](445-oem-cover-catalog-building.md)
+- [Cover Branding and Labeling Options](446-cover-branding-labeling.md)
+- [Managing Sample Shipping Costs](447-sample-shipping-cost.md)
+- [Writing a B2B Warranty Policy for Covers](448-b2b-cover-warranty-policy.md)
+- [Building an After-Sales Plan for Cover Distribution](449-cover-after-sales-plan.md)
+- [Distributor Agreements for Cover Brands](450-cover-distributor-agreement.md)
 
 ## Car Organizer & Interior Storage
 
